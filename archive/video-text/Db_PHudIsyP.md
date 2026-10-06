@@ -1,0 +1,66 @@
+# On-screen text: Db_PHudIsyP
+
+Video: [Db_PHudIsyP.mp4](../../Db_PHudIsyP/Db_PHudIsyP.mp4)
+
+OCR sampled one frame per second. Lines below 0.85 confidence were omitted from this readable view; timings are approximate. Text may be incomplete or misread.
+
+- **00:00** so my recent post, the
+- **00:01** carousel, whatever, went
+- **00:02** super viral
+- **00:03** a lot of people
+- **00:04** crazy response, didn't
+- **00:05** kind
+- **00:06** i'm going to be honest
+- **00:07** i was just ranting
+- **00:08** saw a
+- **00:09** guy who had pretty much
+- **00:10–00:11** dedicated most of his
+- **00:12** studying,
+- **00:13–00:14** having like a crash out
+- **00:15** and I was like, bro, if
+- **00:16** going to crash out about
+- **00:17** crash
+- **00:18** out about marine life or
+- **00:19** fact that Al is
+- **00:21** slowly encroaching upon
+- **00:22** our rights and our civil
+- **00:23** liberties or the fact
+- **00:24** you know, multiple
+- **00:25** countries are pointing
+- **00:26** nukes at each other
+- **00:27** i mean, if we're going
+- **00:28** i'm sure there's a
+- **00:29** crashing
+- **00:30** out, but I digress
+- **00:31** that's not the point of
+- **00:32** this video
+- **00:33** the point of this video
+- **00:34–00:36** that we may disagree
+- **00:38** like that's cool
+- **00:39** we're going to disagree
+- **00:40** but I think there's one
+- **00:41** that we can all agree on
+- **00:43** just because someone's
+- **00:44** religious doesn't mean
+- **00:45** should be a douchebag
+- **00:46–00:47** i think we can all agree
+- **00:48** that
+- **00:49** i think we can all say
+- **00:51** a fundamental aspiration
+- **00:52** everyone who tries to be
+- **00:53** religious person, who's
+- **00:54** trying to be a
+- **00:55** compassionate, empathic,
+- **00:56** loving, kind person in
+- **00:57–00:58** world, is going to try
+- **00:59** best not to be a
+- **01:00** douchebag
+- **01:01** and I think an addendum
+- **01:02** like an addition to that
+- **01:03–01:05** not make religion about
+- **01:06** making others feel like
+- **01:07** crap
+- **01:08** i think those are two
+- **01:09** that we can most
+- **01:10** fundamentally agree on
+- **01:11** ihope

@@ -1,0 +1,119 @@
+# On-screen text: DZvA_9DI6P3
+
+Video: [DZvA_9DI6P3.mp4](../../DZvA_9DI6P3/DZvA_9DI6P3.mp4)
+
+OCR sampled one frame per second. Lines below 0.85 confidence were omitted from this readable view; timings are approximate. Text may be incomplete or misread.
+
+- **00:00–00:09** every ex Muslim I've ever
+- **00:00–00:09** met said this to me
+- **00:00–00:03** you know, almost every
+- **00:00–00:03** single ex-Muslim I've
+- **00:04–00:06** ever met or spoken to,
+- **00:04–00:06** or Muslim who is on the
+- **00:07–00:09** edge of leaving the
+- **00:07–00:09** religion, has one thing in
+- **00:11–00:12** they didn't somehow
+- **00:11–00:12** one day open up a book
+- **00:14–00:15** and it all fell apart and
+- **00:14–00:15** shattered to pieces
+- **00:17** what actually happened
+- **00:17** was something very
+- **00:18** very specific
+- **00:19–00:20** they interacted with
+- **00:19–00:20** someone who claimed to
+- **00:21–00:23** be religious, but wasn't
+- **00:21–00:23** and ended up breaking
+- **00:24–00:26** their heart and treated
+- **00:24–00:26** them in a way that made
+- **00:27–00:28** them question the very
+- **00:27–00:28** faith this person
+- **00:29** purports to follow
+- **00:31–00:33** a lot of the atheists that
+- **00:31–00:33** I have met, a lot of the
+- **00:34–00:35** agnostics that I have
+- **00:34–00:35** met, a lot of the
+- **00:36–00:38** individuals that I've met
+- **00:36–00:38** who have something
+- **00:40–00:42** against the religion or
+- **00:40–00:42** have some large-scale
+- **00:43–00:45** issues in believing with
+- **00:43–00:45** God have had traumatic
+- **00:46–00:49** emotional experiences
+- **00:46–00:49** with those who claim to
+- **00:51–00:54** this is whyI claim that
+- **00:51–00:54** the worst person to be
+- **00:52** this is why I claim that
+- **00:55–00:57** around is the one who is
+- **00:55–00:57** religiously insufferable,
+- **00:58–01:04** the individual who uses
+- **00:58–01:04** religion as a means to
+- **01:01** justify their arrogance
+- **01:05–01:06** abuse, put down and
+- **01:05–01:06** oppress others
+- **01:07** i mean, just think about
+- **01:08–01:10** is there anyone's
+- **01:08–01:10** company more worse
+- **01:11** than someone who
+- **01:11** believes that they are
+- **01:12** superior to you
+- **01:13–01:16** not just in money or in
+- **01:13–01:16** wealth, but in religion, in
+- **01:17** something that
+- **01:17** generally cannot be
+- **01:18** measured properly
+- **01:20–01:21** can you imagine how
+- **01:20–01:21** horrible it would be to
+- **01:22–01:23** be in a room with
+- **01:22–01:23** someone like that, who
+- **01:24–01:25** is constantly picking out
+- **01:24–01:25** your faults, putting you
+- **01:26–01:28** down, making you feel
+- **01:26–01:28** like you're less than, not
+- **01:29–01:30** just less than in a
+- **01:29–01:30** material sense, but less
+- **01:31–01:34** than in an ontological,
+- **01:31–01:34** inherent way that
+- **01:36** something is wrong with
+- **01:36** you
+- **01:37–01:38** i used to debate an
+- **01:37–01:38** atheist on a regular
+- **01:39–01:40** basis and I used to have
+- **01:39–01:40** all these arguments
+- **01:41–01:43** ready and then one of
+- **01:41–01:43** my teachers told me it's
+- **01:44–01:45** not logic he needs he
+- **01:44–01:45** has an emotional
+- **01:46–01:48** problem he's upset with
+- **01:46–01:48** God he's upset with
+- **01:50** muslims you could say
+- **01:51–01:52** and when I asked him if
+- **01:51–01:52** that was true, he said,
+- **01:53** yeah, it was
+- **01:54** and that they had
+- **01:54** mistreated him and had
+- **01:55–01:57** upset him during the
+- **01:55–01:57** time he was a child
+- **01:58–01:59** and his way of revenge
+- **01:58–01:59** was to not believe in
+- **02:00** what they believed in
+- **02:01–02:02** but for some reason we
+- **02:01–02:02** kind of try and think
+- **02:03–02:05** that things are just full
+- **02:03–02:05** of logic when in reality a
+- **02:06–02:08** large amount of life is
+- **02:06–02:08** related to the heart
+- **02:09–02:10** most things are matters
+- **02:09–02:10** of the heart
+- **02:12** and that's why being
+- **02:12** around an arrogant
+- **02:13–02:16** religious person,
+- **02:13–02:16** religious person, is
+- **02:17** actually bad for the
+- **02:17** heart
+- **02:18** that's my stance on this
+- **02:19–02:20** no one can change my
+- **02:19–02:20** mind
+- **02:21–02:22** but here's the crazy part
+- **02:21–02:22** I forgot to add
+- **02:23–02:24** we need compassion for
+- **02:23–02:24** them too

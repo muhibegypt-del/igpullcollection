@@ -1,0 +1,94 @@
+# On-screen text: DZ0P-tfoT5K
+
+Video: [DZ0P-tfoT5K.mp4](../../DZ0P-tfoT5K/DZ0P-tfoT5K.mp4)
+
+OCR sampled one frame per second. Lines below 0.85 confidence were omitted from this readable view; timings are approximate. Text may be incomplete or misread.
+
+- **00:00–00:09** 33 years
+- **00:00–00:01** i can't believe I'm
+- **00:00–00:01** making this video
+- **00:03** ireally can't
+- **00:04–00:05** but I turned 33 today
+- **00:04–00:05** and I kind of want to
+- **00:06–00:07** make that whole cliche,
+- **00:06–00:07** this is what I've learned
+- **00:09** so I have two lessons for
+- **00:09** you
+- **00:11** number one, know your
+- **00:11** friendships
+- **00:12** if you know your
+- **00:12** friendships and
+- **00:13–00:15** understand what role
+- **00:13–00:15** each person has in your
+- **00:16–00:17** life, it becomes a lot
+- **00:16–00:17** more easier in
+- **00:18–00:19** understanding what you
+- **00:18–00:19** expect from that person
+- **00:21–00:22** aristotle's is his three
+- **00:21–00:22** types of friendships
+- **00:23–00:25** one, the friendship of
+- **00:23–00:25** utility where it's purely
+- **00:27** what can I get out of you
+- **00:28** what can I give you
+- **00:29** kind of thing
+- **00:30** the second is pleasure
+- **00:31–00:32** it's a friendship that's
+- **00:31–00:32** out of fun
+- **00:33–00:34** it's like I enjoy hanging
+- **00:33–00:34** around with them, but
+- **00:35–00:36** it's oftentimes very
+- **00:35–00:36** superficial
+- **00:37–00:38** the third and most
+- **00:37–00:38** important and arguably
+- **00:39–00:40** the most beautiful type
+- **00:39–00:40** is the friendship of
+- **00:41–00:43** virtue, where you hang
+- **00:41–00:43** around with them, but
+- **00:44–00:45** you learn from them and
+- **00:44–00:45** they have great moral
+- **00:46–00:47** character and they have
+- **00:46–00:47** ethics and all that nice
+- **00:49** and that's very rare
+- **00:50–00:51** and that's the lesson
+- **00:50–00:51** that I want to share with
+- **00:52–00:54** not every friendship will
+- **00:52–00:54** be a friendship of virtue
+- **00:55** and not every friendship
+- **00:55** of pleasure will be a
+- **00:56** friendship of
+- **00:56** transaction
+- **00:58** so it's very important
+- **00:58** that you know your
+- **00:59–01:00** people so that you don't
+- **00:59–01:00** expect for them what
+- **01:01** they can't give you
+- **01:02–01:04** and the second most
+- **01:02–01:04** important lesson I've
+- **01:06–01:07** well, I think I've learnt on
+- **01:06–01:07** this planet Earth
+- **01:09–01:11** is never exchange your
+- **01:09–01:11** dignity for company
+- **01:12–01:13** never abase yourself for
+- **01:12–01:13** the company and the
+- **01:14–01:15** proximity to others
+- **01:16–01:17** because the person that
+- **01:16–01:17** you abase yourself for
+- **01:18–01:19** or exchange your
+- **01:18–01:19** dignity for will never
+- **01:20–01:21** ever never respect you
+- **01:20–01:21** anyway
+- **01:23–01:24** i've seen it happen in
+- **01:23–01:24** myself and in others
+- **01:25–01:26** they exchange their
+- **01:25–01:26** dignity and honor and
+- **01:27–01:28** abase themselves just
+- **01:27–01:28** so they can be close to
+- **01:30** and that person doesn't
+- **01:30** rape them
+- **01:31** so don't do that
+- **01:32** and here's a bonus
+- **01:32** lesson
+- **01:34–01:35** only go where you're
+- **01:34–01:35** invited
+- **01:36–01:37** trust me, it will save you
+- **01:36–01:37** a lot of pain

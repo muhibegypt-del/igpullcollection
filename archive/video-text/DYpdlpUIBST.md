@@ -1,0 +1,109 @@
+# On-screen text: DYpdlpUIBST
+
+Video: [DYpdlpUIBST.mp4](../../DYpdlpUIBST/DYpdlpUIBST.mp4)
+
+OCR sampled one frame per second. Lines below 0.85 confidence were omitted from this readable view; timings are approximate. Text may be incomplete or misread.
+
+- **00:00–02:08** The stranger who taught me
+- **00:00–02:08** what faith actually feels like.
+- **00:00–00:01** weve all had crazy
+- **00:00–00:01** moments in our life but I
+- **00:02–00:04** think this is by far one of
+- **00:02–00:04** the craziest moments in
+- **00:05** mylife
+- **00:06–00:08** so were at the top of a
+- **00:06–00:08** mountain and were in
+- **00:09–00:11** Morocco and I hear an
+- **00:09–00:11** old woman crying
+- **00:12–00:13** solapproach her kneel
+- **00:12–00:14** down and ask if shes
+- **00:14** solapproach herkneel
+- **00:16–00:17** she sat outside her
+- **00:16–00:17** house and Ill never
+- **00:18** forget the color of the
+- **00:19** it was blue
+- **00:20–00:21** so she tells me that her
+- **00:20–00:21** son has passed away
+- **00:22–00:24** and that she has no
+- **00:22–00:24** money no food and that
+- **00:25–00:26** her electricity is about
+- **00:25–00:26** to be cut off
+- **00:27–00:29** now shes speaking
+- **00:27–00:29** pretty thick Darija and
+- **00:30** my Darija is not that
+- **00:30** great
+- **00:31–00:33** so ljust about make out
+- **00:31–00:33** what shes saying and I
+- **00:34–00:35** translate it to my
+- **00:34–00:35** friends that are next to
+- **00:36** now remember what I
+- **00:36–00:37** said were at the top of a
+- **00:37** now remember whatI
+- **00:39–00:40** so this is pretty remote
+- **00:39–00:40** theres no one from the
+- **00:41–00:43** UK there apart from me
+- **00:41–00:43** and my two other
+- **00:45** three other friends
+- **00:46–00:47** anyway after
+- **00:46–00:47** translating what she
+- **00:48–00:49** said one of my friends
+- **00:48–00:49** puts his hand in his
+- **00:51** takes out his wallet
+- **00:52** then gives her
+- **00:53** thousands of dirhams
+- **00:54–00:55** he hands it over to her
+- **00:56–00:57** looks at him with this
+- **00:56–00:57** kind of shock disbelief
+- **00:58–00:59** shes in an awe almost
+- **01:00–01:01** she turns away looks up
+- **01:00–01:01** to the sky
+- **01:03** and raises her hands
+- **01:04–01:05** thats when she enters
+- **01:04–01:05** into the most intimate
+- **01:07–01:08** conversation Ive ever
+- **01:07–01:08** seen any human being
+- **01:09** enterinto
+- **01:10–01:12** it was a conversation of
+- **01:10–01:12** complete and utter
+- **01:13** surrender to God
+- **01:15** and then she says
+- **01:15** something to me
+- **01:17** she says look around
+- **01:17** you
+- **01:18–01:19** do you see any other
+- **01:18–01:19** people here
+- **01:20–01:21** its just me and you
+- **01:22** but look at you
+- **01:24–01:25** youre from thousands of
+- **01:24–01:25** miles away
+- **01:26–01:28** theres no possible way
+- **01:26–01:28** that anyone could have
+- **01:30** herelam in need
+- **01:31–01:32** and here you are willing
+- **01:31–01:32** to help me
+- **01:33–01:34** doesnt matter how far a
+- **01:33–01:34** person is
+- **01:35–01:36** it doesnt matter what is
+- **01:35–01:36** happening
+- **01:37–01:39** if God wants to provide
+- **01:37–01:39** for you he will
+- **01:40–01:41** he will bring strangers
+- **01:40–01:41** who live thousands of
+- **01:42–01:43** miles away in the middle
+- **01:45–01:46** whatever country and
+- **01:45–01:46** bring them to you to
+- **01:47** supportyou
+- **01:49–01:50** thats when she looked
+- **01:49–01:50** at me took my hand and
+- **01:51–01:53** said my son if this was
+- **01:51–01:53** ever a sign of anything
+- **01:54–01:57** its a sign to never ever
+- **01:54–01:57** lose hope in God
+- **01:58–01:59** because herelam an old
+- **01:58–02:01** lady being served by
+- **02:00–02:01** because here lam an old
+- **02:02** complete strangers
+- **02:03–02:04** is that not enough proof
+- **02:05–02:06** that hes a merciful Lord
+- **02:07–02:08** like dude the whole
+- **02:07–02:08** thing was crazy

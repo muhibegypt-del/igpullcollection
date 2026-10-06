@@ -1,0 +1,88 @@
+# On-screen text: DYpDGr6sN5A
+
+Video: [DYpDGr6sN5A.mp4](../../DYpDGr6sN5A/DYpDGr6sN5A.mp4)
+
+OCR sampled one frame per second. Lines below 0.85 confidence were omitted from this readable view; timings are approximate. Text may be incomplete or misread.
+
+- **00:00–01:31** mosques are broken in the UK
+- **00:00–00:01** being in a Muslim
+- **00:00–00:01** country changed the
+- **00:02–00:03** way that Ilook at
+- **00:02–00:03** mosques forever
+- **00:04–00:06** you see in a Muslim
+- **00:04–00:06** country the mosque
+- **00:07–00:08** serves and functions as
+- **00:07–00:08** something completely
+- **00:09–00:10** different to just a prayer
+- **00:09–00:10** space
+- **00:11–00:12** here in the UK a lot of
+- **00:11–00:12** mosques are only open
+- **00:13–00:14** for prayer and then
+- **00:13–00:14** theyre locked up again
+- **00:15–00:16** preventing the
+- **00:15–00:16** community from ever
+- **00:17** actually using them
+- **00:18–00:20** they spend millions of
+- **00:18–00:20** pounds on these things
+- **00:21** and we cant use them
+- **00:22–00:24** like something altered
+- **00:22–00:24** my brain chemistry
+- **00:25** whenI was in Turkey
+- **00:26–00:27** i was speaking to a
+- **00:26–00:27** friend who was living
+- **00:28–00:29** out there and he said
+- **00:28–00:29** yeah you know after the
+- **00:30–00:32** Maghrib Salah they do a
+- **00:30–00:32** little puppet show for
+- **00:34** andI said what
+- **00:35–00:36** it was like yeah all the
+- **00:35–00:36** kids gather around the
+- **00:37–00:39** Imam and they have a
+- **00:37–00:39** little puppet show and
+- **00:40–00:41** its really fun and its
+- **00:40–00:41** lighthearted and
+- **00:42** everyone enjoys it
+- **00:43–00:44** meanwhile a masjid
+- **00:46–00:48** in Preston told parents
+- **00:46–00:48** that you cant bring your
+- **00:49** kids to the mosque
+- **00:50–00:51** i mean like what are we
+- **00:50–00:51** doing here
+- **00:52–00:54** and then they want to
+- **00:52–00:54** like stand up doing the
+- **00:55** Jumuah khutbah saying
+- **00:55** kids dont come to the
+- **00:56** masjid
+- **00:57–00:58** like dude what reason do
+- **00:57–00:58** they have to come to
+- **00:59** the mosque
+- **01:00–01:02** the other dayI decided
+- **01:00** to go to the mosque to
+- **01:03** just kinda decompress
+- **01:04–01:06** bro every single door
+- **01:04** was locked
+- **01:05–01:06** waslocked
+- **01:08–01:09** and then someone cites
+- **01:08–01:09** security reasons
+- **01:10–01:11** were worried the penny
+- **01:10–01:11** boxes are gonna get
+- **01:13** i mean like is this the
+- **01:13** level of thinking
+- **01:14–01:15** when are we going to
+- **01:14–01:15** think bigger than this
+- **01:16–01:18** i proposed this idea of a
+- **01:16–01:18** 247 mosque
+- **01:20** and someone almost had
+- **01:20** a heart attack
+- **01:21** they said thats
+- **01:21** impossible
+- **01:22** people are going to
+- **01:22** breakin
+- **01:23–01:24** isaid its 2026 you know
+- **01:23–01:25** theres solutions to that
+- **01:25** i said its 2026 you know
+- **01:26–01:28** i am just fed up with the
+- **01:26–01:28** way these things are ran
+- **01:29** we need to consider
+- **01:29** some
+- **01:31** solutions for real

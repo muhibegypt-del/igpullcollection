@@ -1,0 +1,141 @@
+# On-screen text: DD7H7LnPPHy
+
+Video: [DD7H7LnPPHy.mp4](../../DD7H7LnPPHy/DD7H7LnPPHy.mp4)
+
+OCR sampled one frame per second. Lines below 0.85 confidence were omitted from this readable view; timings are approximate. Text may be incomplete or misread.
+
+- **00:00–00:02** thoughts in public
+- **00:03** the
+- **00:04–00:06** the thing about the
+- **00:05–00:06** arrogant
+- **00:06** religious person
+- **00:09** they
+- **00:10–00:12** VM1278
+- **00:11** walk
+- **00:12–00:13** walk around in this
+- **00:12–00:13** world
+- **00:13** believing that
+- **00:14** way to
+- **00:15–00:16** way to open people's
+- **00:15–00:16** hearts
+- **00:16** is through
+- **00:17–00:18** blaming,
+- **00:18** shaming ānd
+- **00:20–00:22** other kind of
+- **00:21** problematio.
+- **00:22** problematic methodologies,
+- **00:24–00:25** but
+- **00:24** what
+- **00:25** East 42nd St
+- **00:25** what really shocks
+- **00:26** religious
+- **00:27–00:28** religious person
+- **00:28** the
+- **00:29** they don't
+- **00:30–00:32** they don't show the
+- **00:30–00:32** world
+- **00:31** East 42nd St
+- **00:31** is actually
+- **00:32** is actually the
+- **00:33** RETAIL
+- **00:33** NEMMARK
+- **00:34** that they so desperately
+- **00:34** 212.33
+- **00:34** 2123
+- **00:34** STAD
+- **00:35** 1515
+- **00:36–00:38** THE
+- **00:36–00:38** LION
+- **00:36–00:37** KING
+- **00:36** the paradox
+- **00:36** Caesar Palac
+- **00:39** the arrogant
+- **00:40** ITZY
+- **00:41–00:49** OFA
+- **00:41** INTPU
+- **00:41–00:49** LIFETIME
+- **00:41–00:42** GET
+- **00:41** TICKETS
+- **00:41–00:42** HERE
+- **00:41** LIONKING.COM
+- **00:41** is they
+- **00:42** ELINI
+- **00:42** is they create à worl
+- **00:43** is they create à world
+- **00:43** which:comp_ssion
+- **00:44** THE
+- **00:44–00:49** SHOW
+- **00:44–00:45** CONSIGUE
+- **00:44** AQUI
+- **00:44–00:52** LIONKING.COM
+- **00:44** is they create àworld
+- **00:44** in-which-compassion
+- **00:44** =isno longer
+- **00:45** A10
+- **00:45** AQUÍ
+- **00:45** LDA
+- **00:45** IYS
+- **00:45** so-they
+- **00:46** WIH2
+- **00:46–00:49** ITZY
+- **00:46** so they a
+- **00:46** actuallynever
+- **00:46** BORN
+- **00:47** SHO
+- **00:47–00:48** チケットは
+- **00:47** こで入手
+- **00:47** できます
+- **00:47** so they actually never
+- **00:47** end up getting
+- **00:47** the
+- **00:48** FLAGSHIP
+- **00:48** asdaq
+- **00:49** A30
+- **00:49–00:51** ACHETER
+- **00:49–00:51** DES
+- **00:49–00:51** ICI
+- **00:49–00:51** BILLETS
+- **00:49** that
+- **00:49** they so desperately
+- **00:49** FLAGS
+- **00:49** n the cily the
+- **00:49** RETAI
+- **00:49** FOR
+- **00:49** NEWM
+- **00:50** LIFETI
+- **00:50** that they $o: desperately
+- **00:50–00:51** need
+- **00:50** ORN
+- **00:51–00:52** TOURETTELORG
+- **00:51** that they so desperately
+- **00:51** and thus the vicious
+- **00:52–00:54** cycle
+- **00:52** oes
+- **00:53** TOUNNTTE.ORG
+- **00:53–00:54** goeson,
+- **00:53** blaming
+- **00:54** blaming and shaming
+- **00:54** and
+- **00:55–00:59** TOURETTE.ORG
+- **00:55** with
+- **00:56** with negative
+- **00:57** MON
+- **00:57–00:58** with negativefear
+- **00:57** Jasdaq
+- **00:58** NOW
+- **00:58** OPEN
+- **00:58** is the main drive
+- **00:58–00:59** Vasdaq
+- **00:59** with negative Tear
+- **00:59–01:00** TIMES
+- **00:59** isthe main drive for
+- **00:59** religiousness.
+- **01:00** SQUARE
+- **01:01** GLOBAL
+- **01:01** PLAGSHIP
+- **01:01** justthink it's
+- **01:01** HIE
+- **01:01** sdaq
+- **01:02** i just think it's pretty
+- **01:02** sad when you_think
+- **01:02** about it.

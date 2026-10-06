@@ -1,0 +1,132 @@
+# On-screen text: DYxf6KzIYr0
+
+Video: [DYxf6KzIYr0.mp4](../../DYxf6KzIYr0/DYxf6KzIYr0.mp4)
+
+OCR sampled one frame per second. Lines below 0.85 confidence were omitted from this readable view; timings are approximate. Text may be incomplete or misread.
+
+- **00:00–00:01** should I tell you whats
+- **00:00–00:01** worse than being lost
+- **00:02–00:03** taking advice from the
+- **00:02–00:03** wrong person whilst
+- **00:04** youre lost
+- **00:05–00:06** now if youve ever been
+- **00:05–00:06** lost before you know
+- **00:08** how precious advice can
+- **00:10–00:11** so I was 16 years old
+- **00:10–00:11** completely unable to
+- **00:12–00:13** know what it is that I
+- **00:12–00:13** wanted to do
+- **00:15** just out of it
+- **00:16–00:17** so a family friend comes
+- **00:16–00:17** around and my parents
+- **00:18–00:19** kind of say hey you know
+- **00:18–00:19** have a word with him
+- **00:20** hes feeling a little lost
+- **00:22–00:23** so this guy comes along
+- **00:22–00:23** and by the way hes like
+- **00:24** super successful
+- **00:25** successful
+- **00:27** and you know hes rich
+- **00:27** and he has tons of
+- **00:28** money and stuff
+- **00:29–00:30** and the advice that he
+- **00:29–00:30** gives me is arguably the
+- **00:32–00:33** second worst advice Ive
+- **00:32–00:33** ever received in my life
+- **00:35** advice was this
+- **00:36–00:38** hustle grind and push
+- **00:39–00:41** this world is a fight and
+- **00:39–00:41** you have to push for
+- **00:42–00:43** what you want and you
+- **00:42–00:43** cant let up and you must
+- **00:44–00:45** hustle and grind until
+- **00:44–00:46** you fall and collapse and
+- **00:46** hustle and grinduntil
+- **00:47** then get up and do it
+- **00:47** again
+- **00:49–00:50** i mean that is pretty bad
+- **00:49–00:50** advice but the saddest
+- **00:51–00:53** thing is I actually took it
+- **00:51–00:52** on and I tried that for
+- **00:53** on and I tried thatifor
+- **00:54–00:55** many years and believed
+- **00:54–00:55** that was the only way of
+- **00:56** being
+- **00:57–00:59** but then very luckily
+- **00:57–00:59** during my travels I met a
+- **01:00** bunch of people whohad
+- **01:00–01:02** success without killing
+- **01:01–01:02** bunch of people who had
+- **01:04–01:05** and I asked them what is
+- **01:04–01:05** your secret
+- **01:07** how are you so
+- **01:07** successful
+- **01:08–01:09** how have you been able
+- **01:08–01:09** to achieve the things
+- **01:10** that youve been able to
+- **01:10** achieve
+- **01:12** and they kind of laughed
+- **01:13–01:15** they kind of look up to
+- **01:13–01:15** the sky and say I guess
+- **01:16–01:17** its God Gods blessings
+- **01:19–01:20** and when you ask them
+- **01:19–01:20** a little bit more
+- **01:21–01:22** believe that theyre the
+- **01:21–01:22** recipients of a gift
+- **01:23–01:26** so l asked them what is
+- **01:23–01:26** the secret
+- **01:27–01:29** and they said Baraka
+- **01:27–01:29** blessing
+- **01:30** they said that you can
+- **01:30** push as hard as you
+- **01:31–01:32** want for something but
+- **01:31–01:32** unless its got Gods
+- **01:33–01:34** blessing in it it wont
+- **01:33–01:34** reallylast
+- **01:36–01:38** and this idea of Barakah
+- **01:36–01:38** this idea of alignment
+- **01:39–01:41** this idea that God can
+- **01:39–01:41** put wind in your sails is
+- **01:42** so missing from our
+- **01:42** modern discourse
+- **01:44–01:46** our modern discourse is
+- **01:44–01:45** so so filled with this idea
+- **01:46** so so filled with thisidea
+- **01:48–01:49** consistent personal
+- **01:48–01:49** effort and neverending
+- **01:50–01:52** struggle and hustle until
+- **01:50–01:52** you go blue in the face
+- **01:53–01:54** we never really speak
+- **01:53–01:54** about Baraka this idea
+- **01:55–01:57** of aligning yourself this
+- **01:55–01:57** idea that you can
+- **01:58–02:00** engage in good
+- **01:58–02:00** elsewhere and God will
+- **02:01** give you gifts in other
+- **02:01** places
+- **02:03–02:04** the people that Imet
+- **02:03–02:04** had so much love for
+- **02:05–02:06** God they had so much
+- **02:05–02:06** love for the world they
+- **02:07–02:09** had so much love for
+- **02:07–02:09** what was perfect that
+- **02:10–02:11** the world sort of just
+- **02:10–02:11** gave them things
+- **02:12–02:14** because they had this
+- **02:12–02:14** incredible energetic
+- **02:15–02:16** principle of Barakah
+- **02:15–02:16** around them
+- **02:18–02:19** one of the saddest
+- **02:18–02:19** things about hustle is
+- **02:21–02:22** oftentimes you very
+- **02:21–02:22** rarely can see God in it
+- **02:23–02:24** because you can get so
+- **02:23–02:24** sucked into this idea
+- **02:25** that its you and your
+- **02:25** effort
+- **02:27–02:28** but at least with Baraka
+- **02:27–02:28** you know that the
+- **02:30–02:31** blessings that youre
+- **02:30** receiving from asource
+- **02:31** receiving from a source
+- **02:32** way higher than you

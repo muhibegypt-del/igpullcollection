@@ -1,0 +1,64 @@
+# Worship & Ramadan
+
+Suggested theme links from automated text classification. A post can appear in several themes.
+
+58 posts
+
+- [religion should be a natural expression](../posts/DZhz7JpIWtl.md) — `DZhz7JpIWtl`
+- [what if everything we were told wasn't true](../posts/DYxLNXIoeDv.md) — `DYxLNXIoeDv`
+- [mosques are broken in the UK](../posts/DYpDGr6sN5A.md) — `DYpDGr6sN5A`
+- [God loves the tryers blessed are the broken](../posts/DVB4JT7E82f.md) — `DVB4JT7E82f`
+- [On The Passing of Abdul Lateef Ayodele Sincerity that can not be taught.](../posts/DS9Q4Woj5NO.md) — `DS9Q4Woj5NO`
+- [the religious police broke her beads on how real authority is grounded in compassion,…](../posts/DRiLvApEzwD.md) — `DRiLvApEzwD`
+- [THE ATLAL The Tomatoes Don't Care About Your Job Title A meditation on work,…](../posts/DQmUcUwjxyM.md) — `DQmUcUwjxyM`
+- [A convert sister shared the ache of fasting alone this Ramadan—a pain too familiar for…](../posts/DHSvUYmvbix.md) — `DHSvUYmvbix`
+- [The confused-Ramadan, the clumsy-Ramadan, the sad-and-lonely Ramadan, the…](../posts/DGrS3Cpoz29.md) — `DGrS3Cpoz29`
+- [Those who burn people alive with impunity and destroy lives without humanity in their…](../posts/DBGhnmsPBdo.md) — `DBGhnmsPBdo`
+- [I can be as religious as I want.](../posts/C_fvfbUIHIN.md) — `C_fvfbUIHIN`
+- [I didn't want to write this, but I feel compelled to.](../posts/C_D6PLMo7-4.md) — `C_D6PLMo7-4`
+- [The Real Eid is the reunion with The Beloved.](../posts/C8URX1QoDOi.md) — `C8URX1QoDOi`
+- [It is never too late to start a relationship with your Lord.](../posts/C6TUZ3MoCzo.md) — `C6TUZ3MoCzo`
+- [Every struggle you make in this month is witnessed.](../posts/C42oPyWICpf.md) — `C42oPyWICpf`
+- [There are officially less than 60 days until the blessed month of Ramadan arrives.](../posts/C2DB1FcIVgf.md) — `C2DB1FcIVgf`
+- [There are people who I call 'the tryers.' They strive to pray, learn about God, spread…](../posts/C1qaZIQIVWX.md) — `C1qaZIQIVWX`
+- [The pain is real—but the hope can be even more real.](../posts/C0IU5NFoaAx.md) — `C0IU5NFoaAx`
+- [I have to post this.](../posts/Cyr_MymoB1h.md) — `Cyr_MymoB1h`
+- [Prayer is the refuge.](../posts/CyWQ9w0IBnB.md) — `CyWQ9w0IBnB`
+- [There is something special in humility.](../posts/Cw6M2RzIxRg.md) — `Cw6M2RzIxRg`
+- [Self-pretentious piety or deep-seated presence?](../posts/CwMRYQwIrMQ.md) — `CwMRYQwIrMQ`
+- [Worshipping alone is not easy; it's hard, even heartbreaking.](../posts/Cu8NM51IvY6.md) — `Cu8NM51IvY6`
+- [I feel the Madressa system in the UK, which is meant for kids aged 4-12, is out of date.](../posts/Cu2VA-bIkvy.md) — `Cu2VA-bIkvy`
+- [The truth is, we're all just a bunch of 'tryers'.](../posts/CuITgOhr9w1.md) — `CuITgOhr9w1`
+- [I was probably 16 when I first tried to pray.](../posts/CtaEaapoBYE.md) — `CtaEaapoBYE`
+- [In the Islamic Tradition human beings have a God-given honor.](../posts/CrjFqGpIwAM.md) — `CrjFqGpIwAM`
+- [The Real Eid is the reunion with The Beloved.](../posts/CrVDNmKojGo.md) — `CrVDNmKojGo`
+- [Ramadan has ended, but God's love remains steadfast.](../posts/CrRYMEVoT7F.md) — `CrRYMEVoT7F`
+- [Even though it was not necessarily my best Ramadan.](../posts/CrKHxgxoubn.md) — `CrKHxgxoubn`
+- [I've met people who dedicate everything to God.](../posts/CrIRJMPIKJW.md) — `CrIRJMPIKJW`
+- [Who are we to belittle somebody else's worship?](../posts/CrEq4jjIngI.md) — `CrEq4jjIngI`
+- [I'm not sure about you, but this Ramadan seemed to fly by faster than any other I've…](../posts/Cq4QMMlo71N.md) — `Cq4QMMlo71N`
+- [The committed-Ramadan, the commitment-issues Ramadan, the l-need-to-read-more Ramadan,…](../posts/CqmEmbGoNXy.md) — `CqmEmbGoNXy`
+- [Ramadan is moving fast.](../posts/CqjFxHZIWIS.md) — `CqjFxHZIWIS`
+- [This is a message for all those currently struggling with their day-to-day during this…](../posts/CqeKpfGIdr3.md) — `CqeKpfGIdr3`
+- [X Muhib @muhiblog](../posts/CqW-UQ0IxUG.md) — `CqW-UQ0IxUG`
+- [Off to a rocky start?](../posts/CqMrz9_oCX4.md) — `CqMrz9_oCX4`
+- [Ramadan Anxiety is a genuine feeling that many of us experience.](../posts/CqGumm7IWko.md) — `CqGumm7IWko`
+- [The confused-Ramadan, the clumsy-Ramadan, the sad-and-lonely Ramadan, the…](../posts/CqEmRskIF2W.md) — `CqEmRskIF2W`
+- [With Ramadan getting closer I reflect on how I have not spent time sowing the seeds…](../posts/CpqOJSdLyC5.md) — `CpqOJSdLyC5`
+- [Lots of us are super excited for Ramadan, which is awesome, but there's also a group…](../posts/Cpi4IosIKP5.md) — `Cpi4IosIKP5`
+- [I have met people.](../posts/CpQaCAUoHJ7.md) — `CpQaCAUoHJ7`
+- [It is almost here – that month, the month of blessings, healing, and proximity through…](../posts/Co0QDfooNLl.md) — `Co0QDfooNLl`
+- [There are people in this world who walk the lonely path toward God.](../posts/ClHJVnloWda.md) — `ClHJVnloWda`
+- [The struggle as a Muslim to pray consistently is valid, and in truth, is a lifelong…](../posts/CkyXtBjo4Ad.md) — `CkyXtBjo4Ad`
+- [Listen.](../posts/Cj8YLWJosZ9.md) — `Cj8YLWJosZ9`
+- [Don't let big tech indoctrinate you into thinking that the measure of a person's love…](../posts/CjjWHQMoUgM.md) — `CjjWHQMoUgM`
+- [There are no shortcuts.](../posts/Cg5GuAKodZw.md) — `Cg5GuAKodZw`
+- [The people that pray for you secretly are very special people.](../posts/CefwwZHIeMP.md) — `CefwwZHIeMP`
+- [Here we are.](../posts/Cc_GOGcoEzQ.md) — `Cc_GOGcoEzQ`
+- [The final days of Ramadan are here.](../posts/CcxCvFdoj6j.md) — `CcxCvFdoj6j`
+- [This Ramadan month is moving fast but being harsh with yourself will not slow it down.](../posts/CckCjJTo4c3.md) — `CckCjJTo4c3`
+- [This is a message to all those currently struggling with their day to day during this…](../posts/CcCMED8IERP.md) — `CcCMED8IERP`
+- [One of the most profound gifts in this life is to move on without malice.](../posts/CbgZCEPoTXJ.md) — `CbgZCEPoTXJ`
+- [Ramadan is a personal experience for some of us.](../posts/CbXrPGGIWiS.md) — `CbXrPGGIWiS`
+- [How beautiful would it be this Ramadan to unplug, switch off, reset and renew ones…](../posts/Ca8f78QoBSs.md) — `Ca8f78QoBSs`
+- [Personality worship within religious circles is starting to get really disturbing.](../posts/CVonWNcoCuk.md) — `CVonWNcoCuk`

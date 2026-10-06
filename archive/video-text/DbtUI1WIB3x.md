@@ -1,0 +1,138 @@
+# On-screen text: DbtUI1WIB3x
+
+Video: [DbtUI1WIB3x.mp4](../../DbtUI1WIB3x/DbtUI1WIB3x.mp4)
+
+OCR sampled one frame per second. Lines below 0.85 confidence were omitted from this readable view; timings are approximate. Text may be incomplete or misread.
+
+- **00:00** make things easier for
+- **00:01** people
+- **00:02** that's what one teacher
+- **00:03–00:04** i met him in Morocco and
+- **00:05** we sat down talking to
+- **00:06** each other
+- **00:07** and by the end of the
+- **00:08** conversation, I felt
+- **00:09** likel
+- **00:10** anything that I wanted
+- **00:12** and I'll never forget
+- **00:13** moment
+- **00:14** hejust said make things
+- **00:15** God
+- **00:16** for
+- **00:17** and he said have mercy
+- **00:18** people
+- **00:19** don't look at them
+- **00:20** the eyes of what they're
+- **00:21** look at them through the
+- **00:22** eyes of what they're
+- **00:23** capable of
+- **00:24** and then when you look
+- **00:25** the mirror, you may
+- **00:26** perhaps see what you're
+- **00:27** capable of
+- **00:28** and when I sat with him,
+- **00:29** what really stuck out to
+- **00:30–00:31** was how he had
+- **00:32** come to the realization
+- **00:33–00:34** that journeying in this
+- **00:35** religion is easy,
+- **00:36–00:37** as long as you maintain
+- **00:38** one
+- **00:39** specific character
+- **00:40** and that was mercy
+- **00:41** and he told me to just
+- **00:42** merciful to everyone
+- **00:43** and I witnessed that
+- **00:44–00:45** when we were in Morocco
+- **00:46** ihada
+- **00:47** a traveling companion
+- **00:48** me by the name of Jack,
+- **00:49** and he was a skater, and
+- **00:50** had tattoos, ripped
+- **00:51** piercings
+- **00:53** and I was a little
+- **00:54** when we were entering
+- **00:55** into the mosque that
+- **00:56** maybe perhaps they may
+- **00:57** say something to him
+- **00:58** was
+- **00:59** used to in the UK
+- **01:00** in the UK, I was used to
+- **01:01–01:02** being told to be quiet,
+- **01:03** why you're not wearing a
+- **01:05** shame mechanisms, and I
+- **01:06** shame mechanisms, andI
+- **01:07** was genuinely concerned
+- **01:08** but when Jack came in
+- **01:09** sat down
+- **01:11** with those old men, they
+- **01:12** fed him tea, they gave
+- **01:13** biscuits and they
+- **01:14** showered
+- **01:15** him with a love that
+- **01:16** i've never seen before
+- **01:17** kind to
+- **01:18** him and by the time Jack
+- **01:19–01:20** left, the skater boy
+- **01:21** tattoos and piercings
+- **01:22** anda
+- **01:23** backwards cap on and
+- **01:24** really tight jeans and
+- **01:25** vans,
+- **01:26** everything that we're
+- **01:27–01:28** taught outwardly doesn't
+- **01:30** purity
+- **01:31** conditioned to believe
+- **01:32** not
+- **01:33** not as light as the
+- **01:34** believer,
+- **01:35** all this nonsense that
+- **01:36** we've been taught
+- **01:37–01:38** mosque with a heart full
+- **01:39–01:40** love, a heart full of
+- **01:41** connection, you could
+- **01:42** when I asked him what
+- **01:43** whenl asked him what
+- **01:44** inside your heart at
+- **01:45** moment, he says I've
+- **01:46** been loved like that
+- **01:47** i felt so welcomed, I
+- **01:48** accepted
+- **01:51** connected to something
+- **01:52** greater than me
+- **01:53** and all those old men
+- **01:54** showed him was mercy
+- **01:55** they showed him
+- **01:56** compassion, mercy,
+- **01:57** empathy
+- **01:58** they showered upon him
+- **01:59** the things that they
+- **02:00** love to be showered upon
+- **02:01** them from God
+- **02:02** when I look at this
+- **02:03** and I look at the way
+- **02:04** that
+- **02:05** we're functioning as a
+- **02:06–02:07** community, especially
+- **02:08–02:09** i am convinced that this
+- **02:10** one of the most
+- **02:11** things that me and you
+- **02:12** have lost
+- **02:13** and it would be
+- **02:14** incredible
+- **02:15** to recenter it in some
+- **02:16** we've been conditioned
+- **02:17** believe
+- **02:18** that in order to be
+- **02:19** religious, we must
+- **02:20** necessarily be harsh and
+- **02:21–02:22** there is nothing further
+- **02:23** when I sat with that old
+- **02:24–02:25** man in Morocco, in that
+- **02:26** living room, what he
+- **02:28–02:29** was that if we look to
+- **02:30** people with what's
+- **02:31** potentially in them for
+- **02:32–02:33** greater good, we may be
+- **02:34** potential
+- **02:35** out of ourselves

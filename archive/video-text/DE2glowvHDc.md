@@ -1,0 +1,87 @@
+# On-screen text: DE2glowvHDc
+
+Video: [DE2glowvHDc.mp4](../../DE2glowvHDc/DE2glowvHDc.mp4)
+
+OCR sampled one frame per second. Lines below 0.85 confidence were omitted from this readable view; timings are approximate. Text may be incomplete or misread.
+
+- **00:00–00:02** thoughts in public
+- **00:03–00:05** episode 3
+- **00:06** so it might
+- **00:07–00:08** so it might be very
+- **00:07** difficult
+- **00:08** difficult for me and
+- **00:08** you to believe
+- **00:09–00:10** but
+- **00:10** everyone's
+- **00:12** everyone
+- **00:13–00:15** everyone is trying
+- **00:13** to make
+- **00:13–00:15** Jee
+- **00:13–00:14** MAX
+- **00:14–00:15** to make sense of their
+- **00:14** current
+- **00:15** current circumstance.
+- **00:16** some of
+- **00:17–00:20** some of us are trying
+- **00:17** to move forward.
+- **00:20–00:21** to understand why
+- **00:20** on earth
+- **00:21** someof us are trying
+- **00:21** on earth we move backwards.
+- **00:23–00:24** some of us are trying
+- **00:23** to break
+- **00:24** to break certain habits.
+- **00:25** some
+- **00:26–00:27** some of us are starting
+- **00:27** certain habits.
+- **00:28** we're all
+- **00:29–00:30** we're all trying,
+- **00:29** we're
+- **00:30** we're all trying to
+- **00:30** make sense
+- **00:31** experience
+- **00:32–00:33** experience of being
+- **00:32–00:33** human and everyone's
+- **00:33** just working it
+- **00:35–00:36** and you know you do
+- **00:35** find
+- **00:36** finda
+- **00:36** very
+- **00:37** of people
+- **00:38** of people who have
+- **00:38** stopped working
+- **00:39** call these
+- **00:40** call these enlightened
+- **00:40** beings.
+- **00:41** individuals
+- **00:42** individuals who've
+- **00:42** just
+- **00:42** handed
+- **00:43** back
+- **00:44** they no longer
+- **00:45–00:46** they no longer work
+- **00:45** anything out and
+- **00:46** accept
+- **00:47** will
+- **00:48** these people are rare.
+- **00:49** for
+- **00:50–00:51** for the most part every
+- **00:51** one of us in this modern
+- **00:52** especially
+- **00:53–00:54** especially us in the
+- **00:53–00:54** modern west,
+- **00:54** is just!
+- **00:55** sense
+- **00:56–00:57** sense of where we're
+- **00:56–00:57** going,
+- **00:57** what we're doing,
+- **00:58–01:00** what life is about,
+- **00:59–01:02** how
+- **01:00** to make an impact,
+- **01:01** how to stop
+- **01:02–01:03** how to stop wasting
+- **01:02–01:03** time,
+- **01:03** how to achieve,
+- **01:04** how to x,
+- **01:06** everyone's tr
+- **01:08** CND OF XIAO

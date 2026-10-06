@@ -1,0 +1,89 @@
+# On-screen text: DD-C0-1z5Po
+
+Video: [DD-C0-1z5Po.mp4](../../DD-C0-1z5Po/DD-C0-1z5Po.mp4)
+
+OCR sampled one frame per second. Lines below 0.85 confidence were omitted from this readable view; timings are approximate. Text may be incomplete or misread.
+
+- **00:01–00:03** thoughts in public
+- **00:04–00:06** episode 2
+- **00:08** i don't
+- **00:12** as the world
+- **00:13** as the world gets more
+- **00:15–00:16** technologically
+- **00:16** equipped
+- **00:17** we're
+- **00:18** we're turning into
+- **00:18** these
+- **00:20** like right
+- **00:21–00:22** like right now there
+- **00:21** are cars
+- **00:22** are cars around mel
+- **00:22** and eyeryone
+- **00:23** their own I
+- **00:23** little
+- **00:24–00:25** their own
+- **00:24–00:25** little siloed
+- **00:25** car
+- **00:26** everyone
+- **00:28–00:29** just in this
+- **00:29** experience
+- **00:32–00:34** and with the rise of
+- **00:32–00:34** individualism,
+- **00:34** kind of hyper individualism,
+- **00:36–00:37** we forget that we're
+- **00:37** actually part of a
+- **00:37** collective.
+- **00:38–00:45** NEW CALIFORNIA REPUBLIC
+- **00:38–00:45** Pasadena
+- **00:38–00:45** BURGER
+- **00:38–00:39** BOTHAS GOOD
+- **00:38** CALIFORMIA
+- **00:38–00:43** OUTATIME
+- **00:38** tentic Californian
+- **00:38–00:45** eeseburge
+- **00:38–00:45** CALIFORNIA
+- **00:39–00:44** OREO
+- **00:39–00:45** lentic Californian
+- **00:40** Colorod
+- **00:40–00:45** BOTH AS GOOD
+- **00:40** Californian
+- **00:40** tentic
+- **00:41** Colorad
+- **00:42** eeseburger
+- **00:42–00:45** Dreamin
+- **00:45** OUTAT
+- **00:47** and as cliche
+- **00:47** nos
+- **00:48** and as cliche as that
+- **00:48** may sound,
+- **00:48** it's
+- **00:49** SOU
+- **00:50** and
+- **00:50–00:52** THER
+- **00:51–00:54** and the more individualism
+- **00:52** starts
+- **00:53** starts to grow as
+- **00:53** THE
+- **00:54** starts to grow as the
+- **00:54** modern response
+- **00:55** MiN
+- **00:55** HERP
+- **00:56** whatever this
+- **00:57** whatever this conscious
+- **00:57** experience
+- **01:00** are going to find
+- **01:01** are going to find it
+- **01:01** more and more difficult
+- **01:02** conl
+- **01:03** to connect with one
+- **01:03** another
+- **01:05–01:06** because we're under
+- **01:05** this illusion
+- **01:05–01:06** nkstrasse
+- **01:06** this illusion that,
+- **01:07** as long
+- **01:08** as long as i've got
+- **01:08** myself,
+- **01:08** i'm
+- **01:09** and that's just
+- **01:11** we need each other.

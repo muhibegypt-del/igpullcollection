@@ -1,0 +1,102 @@
+# On-screen text: DZxk-AiINvg
+
+Video: [DZxk-AiINvg.mp4](../../DZxk-AiINvg/DZxk-AiINvg.mp4)
+
+OCR sampled one frame per second. Lines below 0.85 confidence were omitted from this readable view; timings are approximate. Text may be incomplete or misread.
+
+- **00:00–00:04** haraam police must live a
+- **00:00–00:04** miserable life
+- **00:00–00:01** this is gonna be a weird
+- **00:00–00:01** video, but I'm gonna
+- **00:02** need you to stick with
+- **00:03–00:04** over the last few years,
+- **00:03–00:04** I've noticed something
+- **00:05–00:06** growing and it's getting
+- **00:05–00:06** a little weird
+- **00:07–00:08** and it relates to music
+- **00:07–00:08** and the religion of Islam
+- **00:10–00:11** now in the religion,
+- **00:10–00:11** music is
+- **00:13** widely debated
+- **00:14–00:15** it's a hot topic and it can
+- **00:14–00:15** get cagey very quickly
+- **00:16–00:17** i'm not here to discuss
+- **00:16–00:17** with you whether it's
+- **00:18–00:19** permissible or
+- **00:18–00:19** impermissible
+- **00:20–00:21** there are people far
+- **00:20–00:21** more qualified than me
+- **00:22** this is far above my pay
+- **00:22** grade
+- **00:24–00:25** however, I can critique
+- **00:24–00:25** something weird that's
+- **00:26–00:28** happening within our
+- **00:26–00:28** society and culture
+- **00:29–00:31** people are making the
+- **00:29–00:31** impermissibility of
+- **00:32–00:34** music a personality trait
+- **00:32–00:34** and that's weird
+- **00:35–00:36** if something's
+- **00:35–00:36** impermissible, it's
+- **00:37** impermissible
+- **00:38–00:39** it isn't an identifying
+- **00:38–00:39** factor that you can build
+- **00:41** your entire sense of
+- **00:41** being on
+- **00:43–00:44** if something is not
+- **00:43–00:44** allowed, you can't build
+- **00:45–00:46** a sense of who you are
+- **00:45–00:46** and what's not allowed
+- **00:48** and just think about that
+- **00:48** for a moment
+- **00:50–00:51** there are individuals in
+- **00:50–00:51** our world today that are
+- **00:52–00:54** building their sense of
+- **00:52–00:54** who they are on what is
+- **00:55** impermissible
+- **00:56–00:58** and what they do is they
+- **00:56–00:58** define themselves by
+- **00:59–01:01** the very abstinence of
+- **00:59–01:01** that impermissibility
+- **01:02–01:03** what this does is it
+- **01:02–01:03** creates a situation in
+- **01:05–01:06** which what they abstain
+- **01:05–01:06** from and what the rest
+- **01:07–01:09** of the world doesn't as a
+- **01:07–01:09** kind of value metric
+- **01:10–01:11** meaning that because
+- **01:10–01:11** they abstain from it,
+- **01:12–01:13** they are inherently
+- **01:12–01:13** better
+- **01:14–01:15** that's not how this thing
+- **01:14–01:15** works
+- **01:16–01:17** you don't inherently
+- **01:16–01:17** become a better person
+- **01:18–01:19** just because you don't
+- **01:18–01:19** listen to music
+- **01:20–01:21** the same way you don't
+- **01:20–01:21** inherently become a
+- **01:22–01:23** better person because
+- **01:22–01:23** you do listen to music
+- **01:25–01:26** it's getting very weird
+- **01:25–01:26** when we start to define
+- **01:27–01:28** ourselves based on
+- **01:27–01:28** what's allowed and
+- **01:29** what's not allowed
+- **01:30–01:31** these things are legal
+- **01:30–01:31** categories
+- **01:33–01:34** you can't have a hobby
+- **01:33–01:34** that says I don't listen to
+- **01:35–01:36** like, that's not a hobby
+- **01:37** that's not gonna fulfill
+- **01:37** you
+- **01:38–01:40** no matter how
+- **01:38–01:40** impermissible music is,
+- **01:41–01:42** its impermissibility will
+- **01:41–01:42** never give you an
+- **01:43–01:45** overarching narrative of
+- **01:43–01:45** what you need to do in
+- **01:46–01:47** music can be
+- **01:46–01:47** impermissible forever
+- **01:48** you still need to go and
+- **01:48** work

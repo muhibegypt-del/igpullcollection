@@ -1,0 +1,119 @@
+# Life & Reflection
+
+Suggested theme links from automated text classification. A post can appear in several themes.
+
+113 posts
+
+- [O Allāh!](../posts/DcMXDV6oJ3i.md) — `DcMXDV6oJ3i`
+- [Derby Walk West Cliff Entı.](../posts/DXaYyBnjPkH.md) — `DXaYyBnjPkH`
+- [Are we slaves to celebrity culture?](../posts/DJp15QgzNJV.md) — `DJp15QgzNJV`
+- [I don't know, but I feel, as the world gets more and more technologically equipped, we're](../posts/DD-C0-1z5Po.md) — `DD-C0-1z5Po`
+- [The mask has fallen, revealing not just hypocrisy but a deeper and more terrifying truth.](../posts/DCykaAevpmg.md) — `DCykaAevpmg`
+- [It didn't start on October 7th.](../posts/DA2CYcPz1um.md) — `DA2CYcPz1um`
+- [Do you know how many times I've heard people tell me they're tired?](../posts/C-GUURoIOX_.md) — `C-GUURoIOX_`
+- [Post C-EiZhyI08l](../posts/C-EiZhyI08l.md) — `C-EiZhyI08l`
+- [The desire for fame is an insidious one.](../posts/C2k3JzuIwgf.md) — `C2k3JzuIwgf`
+- [I remember once complaining about my age.](../posts/Cw4pSf5oSDC.md) — `Cw4pSf5oSDC`
+- [Dear Men,](../posts/Crl-Ol9IAYJ.md) — `Crl-Ol9IAYJ`
+- [Your attention is not free.](../posts/CreJ-CroeBX.md) — `CreJ-CroeBX`
+- [Good looks can never make up for terrible character.](../posts/CrBzKZso0En.md) — `CrBzKZso0En`
+- [This too shall pass.](../posts/Cq9ApoxoRHH.md) — `Cq9ApoxoRHH`
+- [Tomorrow brings a new day and a fresh start.](../posts/Cqetplmoey2.md) — `Cqetplmoey2`
+- [— "And He is with you wherever you are."](../posts/Cqa04P9IU0G.md) — `Cqa04P9IU0G`
+- [There's a real beauty in raising your hands and saying, "I don't know." The start of…](../posts/CqMo8uwolct.md) — `CqMo8uwolct`
+- [My aspirational mindset for 2023 is to have boundaries, not beef.](../posts/CokpjntIerG.md) — `CokpjntIerG`
+- [Absolutely and utterly heartbreaking.](../posts/CoaKNuFIeiO.md) — `CoaKNuFIeiO`
+- [Life is a series of educated and uneducated guesses.](../posts/CnxQ9hpIhAD.md) — `CnxQ9hpIhAD`
+- [Many years ago I was sat before a wise man.](../posts/Cnt9aKzoR5x.md) — `Cnt9aKzoR5x`
+- [This year honestly felt like sand slipping through my fingers.](../posts/Cmv1mfNI0yH.md) — `Cmv1mfNI0yH`
+- [.Hikayat with Muhib](../posts/Cmheat_IFF3.md) — `Cmheat_IFF3`
+- ["You've changed.](../posts/ClAc5q3IQI6.md) — `ClAc5q3IQI6`
+- [May we be Lovers.](../posts/CkFWT9Moixp.md) — `CkFWT9Moixp`
+- [Have good friends around you so that when you're about to do something dumb they can say..](../posts/CjjyCf3o_LN.md) — `CjjyCf3o_LN`
+- [It's ok.](../posts/CjE9NohI1XF.md) — `CjE9NohI1XF`
+- [May the One who is complete make you Whole.](../posts/Ch-rVVWorTp.md) — `Ch-rVVWorTp`
+- [There is hidden blessing in a private life.](../posts/Cg7zncjIkwO.md) — `Cg7zncjIkwO`
+- [And that is when the old man asked him.](../posts/Cgf66-9I9G2.md) — `Cgf66-9I9G2`
+- [Some people were really good for you once upon a time, but now, at this current moment…](../posts/CgfZ21jILs8.md) — `CgfZ21jILs8`
+- [Take a step back, a deep breath.](../posts/CgYGFWaIIlK.md) — `CgYGFWaIIlK`
+- [To demand an almost instant level of perfection from ourselves is truly the fastest…](../posts/CgXkEQkIA2L.md) — `CgXkEQkIA2L`
+- [Hope once said:](../posts/CgEhcDdIh6W.md) — `CgEhcDdIh6W`
+- [There is light in the tunnel, you.](../posts/CgB5slJo9ZV.md) — `CgB5slJo9ZV`
+- [The quickest and most successful way to drain yourself of energy is to be affected by…](../posts/Cf9tLKOI-dG.md) — `Cf9tLKOI-dG`
+- [It is normal to desire some alone time.](../posts/CfkmcMFItME.md) — `CfkmcMFItME`
+- [It is okay to feel sad.](../posts/Cfkl-YLIudt.md) — `Cfkl-YLIudt`
+- [One time I asked an elderly lady if she had any advice me.](../posts/CfRRvz-j13Y.md) — `CfRRvz-j13Y`
+- [It maybe there is something better in store for you.](../posts/CfNekqfIv3w.md) — `CfNekqfIv3w`
+- [You already have it.](../posts/CfA1IV2IZd4.md) — `CfA1IV2IZd4`
+- [I am guessing it is safe to say we're all trying to hold hope.](../posts/Ce_wA01o2Xo.md) — `Ce_wA01o2Xo`
+- [Is anyone else starting to craft their life in accordance to a zero drama policy?](../posts/Ce_U2ivIxey.md) — `Ce_U2ivIxey`
+- [Being told that your needs are not important but everyone else's are can nurture a…](../posts/CexRfuFICVY.md) — `CexRfuFICVY`
+- [Energetically speaking the people that are best for you are those that do not…](../posts/CerpJGOoE8G.md) — `CerpJGOoE8G`
+- [To live a life of balance is truly something that many of us crave.](../posts/CeMWTMJIK78.md) — `CeMWTMJIK78`
+- [The modern world would have you think that seriousness is a bad quality to have when…](../posts/CeLpQaCo5xm.md) — `CeLpQaCo5xm`
+- [If not in this life then perhaps in the next.](../posts/CeKEEpWo7Jq.md) — `CeKEEpWo7Jq`
+- [We can glimpse chapters of a tale if we look closely enough at life.](../posts/CeJ9j60ocNH.md) — `CeJ9j60ocNH`
+- [There is hidden blessing in a private life.](../posts/CeJebCuoL6F.md) — `CeJebCuoL6F`
+- [It's not bad to prefer your own company.](../posts/CeHxq5_o1pu.md) — `CeHxq5_o1pu`
+- [The one who practices silence also practices emptiness.](../posts/Cdlz1UHIsy4.md) — `Cdlz1UHIsy4`
+- [Of all that is delicate in this world the most delicate is your precious heart.](../posts/CdguF2_o6Cv.md) — `CdguF2_o6Cv`
+- [May the One who is complete make you Whole.](../posts/CdLfYT3omPr.md) — `CdLfYT3omPr`
+- [Not everything needs a reply.](../posts/Ccv6ZcdIOPF.md) — `Ccv6ZcdIOPF`
+- [As I grow older I think about time and attention and where mine is going.](../posts/CciQhgQoMUA.md) — `CciQhgQoMUA`
+- [Shyness is actually very beautiful.](../posts/CcZYNGMoYBo.md) — `CcZYNGMoYBo`
+- [Somebody I admire told me that The Devil plays a trick.](../posts/CcRvQQwoG0d.md) — `CcRvQQwoG0d`
+- [The grounded man does not deny nor does he repress his desire.](../posts/CcMU8mcoIVA.md) — `CcMU8mcoIVA`
+- [I think we could all agree that we're in dire need of some really friendly mosques.](../posts/CcJQtNTojpo.md) — `CcJQtNTojpo`
+- [The world does not revolve around us.](../posts/CcHhdk6Ituv.md) — `CcHhdk6Ituv`
+- [Letting go of anger is not an easy task.](../posts/Cb_LDg3j5q_.md) — `Cb_LDg3j5q_`
+- [Seeing women deep in entrepreneurship and being leading examples of both abundance,…](../posts/CbujjUkI7rX.md) — `CbujjUkI7rX`
+- [Holding space for those around us is a beautiful and noble aspiration.](../posts/Cbtr3RpIzgb.md) — `Cbtr3RpIzgb`
+- [We can glimpse chapters of a tale if we look closely enough at life.](../posts/Cbsz_KgIOQp.md) — `Cbsz_KgIOQp`
+- [Sunshine is an incredible medicine.](../posts/CblRyqYoGiJ.md) — `CblRyqYoGiJ`
+- [My feet haven't touched the ground in a long time.](../posts/CbkyehxoIRr.md) — `CbkyehxoIRr`
+- [The concern is that if we let go, everything will fall apart, while in actuality, it…](../posts/CbjdRIZIBQg.md) — `CbjdRIZIBQg`
+- [Sometimes it's better not to speak.](../posts/CbhwC5VowQw.md) — `CbhwC5VowQw`
+- [If not in this life then perhaps in the next.](../posts/CbdX4QJoBpz.md) — `CbdX4QJoBpz`
+- [May we be saved from worshipping ourselves.](../posts/CbOXJrxI32e.md) — `CbOXJrxI32e`
+- [Sexual repression is dangerous.](../posts/CbLdISeI54N.md) — `CbLdISeI54N`
+- [Want nothing.](../posts/CbJfBbZIffO.md) — `CbJfBbZIffO`
+- [If you're in the UK then congratulations are due because you've almost survived winter.](../posts/CbGJsXYo_XX.md) — `CbGJsXYo_XX`
+- [Disappointment in this world is an inevitable experience.](../posts/CbF-H0MItDh.md) — `CbF-H0MItDh`
+- [A lot of us have to make peace with the idea of peace before we can even begin to…](../posts/CbDLHRujqrH.md) — `CbDLHRujqrH`
+- [The modern world would have you think that seriousness is a bad quality to have when…](../posts/CbCv1z1jojv.md) — `CbCv1z1jojv`
+- [There are moments you'll never forget.](../posts/CbBbEZMILhY.md) — `CbBbEZMILhY`
+- [There is hidden blessing in a private life.](../posts/CbAE0vdIIBR.md) — `CbAE0vdIIBR`
+- [Wake up, Neo.](../posts/CaldxTjINee.md) — `CaldxTjINee`
+- [Taking care of yourself is productive.](../posts/CaicsvhITl4.md) — `CaicsvhITl4`
+- [It is a very expensive habit keeping all your emotions locked up.](../posts/CacJcOoI2nA.md) — `CacJcOoI2nA`
+- [Sometimes it is easier to run away from ourselves.](../posts/CaUvg7joyM2.md) — `CaUvg7joyM2`
+- [Your energy is sacred.](../posts/CaTRXLiI018.md) — `CaTRXLiI018`
+- [Vibes and Qadr.](../posts/CaHa0EnoXdM.md) — `CaHa0EnoXdM`
+- [It's not bad to prefer your own company.](../posts/CZ5RzajIbJy.md) — `CZ5RzajIbJy`
+- [I read something today that absolutely blew my mind.](../posts/CZ2ru-ZoFJa.md) — `CZ2ru-ZoFJa`
+- [To live a life of balance is truly something that many of us crave.](../posts/CZvrmC6oMqN.md) — `CZvrmC6oMqN`
+- [A private life is a indeed a peaceful life.](../posts/CZqKtrrIJF4.md) — `CZqKtrrIJF4`
+- [She is the ocean.](../posts/CZPzcy2o9ZP.md) — `CZPzcy2o9ZP`
+- [The most profound form of letting go is when you let go of somebody you once loved.](../posts/CZPxgtJo8xw.md) — `CZPxgtJo8xw`
+- [We all have a heartache.](../posts/CZPUgVJIBbN.md) — `CZPUgVJIBbN`
+- [Taking yourself seriously.](../posts/CZOQ4_KhUFz.md) — `CZOQ4_KhUFz`
+- [Get out of your own way.](../posts/CZOLLi6Bg0J.md) — `CZOLLi6Bg0J`
+- [Death has been invited to every single party of life.](../posts/CZJbdAVowH7.md) — `CZJbdAVowH7`
+- [Energetically speaking the people that are best for you are those that do not…](../posts/CZIJgu4IjTw.md) — `CZIJgu4IjTw`
+- [The people that have touched my heart the most are often times patient people.](../posts/CZHjpzDog72.md) — `CZHjpzDog72`
+- [The image in the next slide is one a lot of us will feel deeply.](../posts/CZCmXSQIuyJ.md) — `CZCmXSQIuyJ`
+- [There is a lot of talking.](../posts/CZCVn4Wo0T3.md) — `CZCVn4Wo0T3`
+- [Don't force it.](../posts/CYUP9SiowUw.md) — `CYUP9SiowUw`
+- [Sometimes in life it is the step back that propels us forward to where we want to go.](../posts/CWLYe7woYmm.md) — `CWLYe7woYmm`
+- [62 days until 2022.](../posts/CVtX6C_I6on.md) — `CVtX6C_I6on`
+- [Be careful my boy.](../posts/CVp3Rhwop_N.md) — `CVp3Rhwop_N`
+- [Sometimes in life we may miss opportunities.](../posts/CVojVUdogAx.md) — `CVojVUdogAx`
+- [So much of what we consider to be our life are actually externalities that seem to be…](../posts/CVh2sTho12R.md) — `CVh2sTho12R`
+- [“Your soul is larger than you could ever imagine my son." The young boy wonders.](../posts/CVecf3co-iT.md) — `CVecf3co-iT`
+- [Return to freedom.](../posts/CVbuC1dIZ_L.md) — `CVbuC1dIZ_L`
+- [Sublime is the light that communicates to the heart through the prism of meaning.](../posts/CVaqnrhohh8.md) — `CVaqnrhohh8`
+- [No matter how exhilarating or how soul crushing an experience is, it ultimately will pass.](../posts/CVai-rSIQTa.md) — `CVai-rSIQTa`
+- [It would be naive and dishonest to deny the fact that men and women, when attracted to…](../posts/CVZH4Cpo_AM.md) — `CVZH4Cpo_AM`
+- [The human being within has the capacity to see things as they truly are.](../posts/CVX4zdDI5_D.md) — `CVX4zdDI5_D`
+- [I went to the cinema alone today and was forced to internalise my experience before…](../posts/CVThrYVI3Pu.md) — `CVThrYVI3Pu`
+- [Absolutely unbelievable response that is heartwarming, and really overwhelming.](../posts/CVGM1gno_Bf.md) — `CVGM1gno_Bf`
