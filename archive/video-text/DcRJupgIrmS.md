@@ -1,0 +1,70 @@
+# On-screen text: DcRJupgIrmS
+
+Video: [DcRJupgIrmS.mp4](../../DcRJupgIrmS/DcRJupgIrmS.mp4)
+
+OCR sampled one frame per second. Lines below 0.85 confidence were omitted from this readable view; timings are approximate. Text may be incomplete or misread.
+
+- **00:00** ignore this bag, I don't
+- **00:01–00:02** know what it is, but do
+- **00:03** underestimate the power
+- **00:04** of good company
+- **00:05** do not underestimate the
+- **00:06–00:07** power of friendships
+- **00:08** that
+- **00:09** are meaningful and real,
+- **00:10** because good company can
+- **00:11** change your life
+- **00:12–00:14** good company can save
+- **00:15** despair,
+- **00:16** from so much darkness,
+- **00:17–00:18** but also good company
+- **00:19** save you from yourself,
+- **00:20–00:21** because often times we
+- **00:22** overestimate what we can
+- **00:23** do, we overestimate
+- **00:25** our positions in this
+- **00:26** and sometimes we delude
+- **00:27–00:28** ourselves into thinking
+- **00:29** not
+- **00:30–00:31** but good company is the
+- **00:32** thing that helps us with
+- **00:33** that
+- **00:34** good company is just
+- **00:35** single-handedly, I would
+- **00:36** say, the most important
+- **00:37** thing that we can have
+- **00:38** today, because if your
+- **00:39** friends are good, if the
+- **00:40** company that you
+- **00:41–00:42** yourself with, if me and
+- **00:43** surround ourselves with
+- **00:44** people that want the
+- **00:45** for us, that want good
+- **00:46** for
+- **00:47** us, that are happy when
+- **00:48–00:49** succeed, that remind us
+- **00:51–00:52** our potential, that are
+- **00:53** happy when we attain
+- **00:54** poob
+- **00:56** man, that is so
+- **00:57** and we need that,
+- **00:58** especially in this
+- **00:59** strange
+- **01:00** day and age of
+- **01:01** this weird atomism,
+- **01:02** social
+- **01:03–01:04** isolation, this
+- **01:05** fracturing of
+- **01:06–01:07** our social contract,
+- **01:09–01:10** is a true force for good
+- **01:11–01:12** because fundamentally,
+- **01:13** we've been conditioned
+- **01:14** thing alone, but we
+- **01:15** can't
+- **01:16** you need friends, man,
+- **01:17–01:18** need good people around
+- **01:19** to stop you from going
+- **01:20** far and to pick you up
+- **01:21** you're low
+- **01:22** it's a massive thing
+- **01:24** my God, may God give us

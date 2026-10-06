@@ -1,0 +1,78 @@
+# On-screen text: DaLWqIoIl_d
+
+Video: [DaLWqIoIl_d.mp4](../../DaLWqIoIl_d/DaLWqIoIl_d.mp4)
+
+OCR sampled one frame per second. Lines below 0.85 confidence were omitted from this readable view; timings are approximate. Text may be incomplete or misread.
+
+- **00:01–00:02** so I was recommended a
+- **00:01–00:02** TV show on Netflix
+- **00:03** called Nemesis or
+- **00:03** something
+- **00:04** so,I
+- **00:07** go on, get it and watch
+- **00:07** the first episode
+- **00:08–00:10** and I cannot explain to
+- **00:08–00:10** you how bad the
+- **00:11** dialogue was
+- **00:12–00:13** i mean, there were
+- **00:12–00:13** moments in the actual
+- **00:15–00:17** i was scratching my
+- **00:15–00:17** head thinking, is this
+- **00:18** made with Al
+- **00:19–00:21** rticle I read
+- **00:22–00:23** ting
+- **00:28** now, second screen
+- **00:28** viewing is very, very
+- **00:29** simple
+- **00:30–00:31** it assumes that the
+- **00:30–00:31** viewer watching the
+- **00:32** show is also scrolling
+- **00:34** so they have to draw
+- **00:34** and dial back the
+- **00:35–00:36** dialogue and make
+- **00:35–00:36** things easier and
+- **00:37–00:39** simpler for the person
+- **00:37–00:39** scrolling to understand
+- **00:40** what's going on
+- **00:41** this means that the TV
+- **00:41** show becomes less
+- **00:42** descriptive and
+- **00:44–00:46** very predictive, but also
+- **00:44–00:46** kind of dumb
+- **00:47** and I was listening to
+- **00:49** some of the dialogue in
+- **00:49** this
+- **00:50–00:51** it was so bad
+- **00:52–00:53** i mean, there was a
+- **00:52–00:53** moment where the kid
+- **00:54–00:55** comes in and says, Hey,
+- **00:54–00:55** Dad
+- **00:56–00:57** and then the father
+- **00:56–00:57** goes, Hey, son
+- **00:58** it was like, What
+- **00:59** like, what
+- **01:02–01:03** it was so bad that I
+- **01:02–01:03** actually had to go and
+- **01:04–01:05** watch episode one of
+- **01:04–01:05** The Wire
+- **01:06–01:07** which is the greatest TV
+- **01:06–01:07** show of all time
+- **01:08–01:09** and I just had to take a
+- **01:08–01:09** listen to what was being
+- **01:10** said
+- **01:11–01:12** in the wire
+- **01:14–01:15** the wire is just on
+- **01:14–01:15** another level
+- **01:17** today
+- **01:18** and it's a lament
+- **01:19** it's a real lament
+- **01:20–01:21** like me and you in the
+- **01:20–01:21** 90s growing up, we had
+- **01:23–01:24** some of the best
+- **01:23–01:24** selection of movies
+- **01:25** it was incredible
+- **01:26–01:28** i mean, banger after
+- **01:26–01:28** banger after banger and
+- **01:29–01:30** now, like it's far and few
+- **01:29–01:30** between now
+- **01:32** it's all a bit weird now

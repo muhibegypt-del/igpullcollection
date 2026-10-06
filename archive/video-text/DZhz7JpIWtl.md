@@ -1,0 +1,122 @@
+# On-screen text: DZhz7JpIWtl
+
+Video: [DZhz7JpIWtl.mp4](../../DZhz7JpIWtl/DZhz7JpIWtl.mp4)
+
+OCR sampled one frame per second. Lines below 0.85 confidence were omitted from this readable view; timings are approximate. Text may be incomplete or misread.
+
+- **00:00–02:14** religion should be a natural
+- **00:00–02:14** expression
+- **00:00–00:01** this video may cause
+- **00:00–00:01** some arguments in the
+- **00:02–00:04** comments and I really
+- **00:02–00:04** hope that isn't the case
+- **00:05–00:06** but I need to say what I
+- **00:05–00:06** need to say
+- **00:07–00:08** so last week I was
+- **00:07–00:08** graciously invited to a
+- **00:09–00:12** football game where my
+- **00:09–00:12** friend was playing and it
+- **00:13–00:14** was a charity football
+- **00:13–00:14** match between the
+- **00:15–00:16** imams of the north and
+- **00:15–00:16** the south
+- **00:17–00:18** hats off to everyone
+- **00:17–00:18** who played, incredible
+- **00:19–00:20** effort, an amazing
+- **00:19–00:20** initiative to raise money
+- **00:22** but something very
+- **00:22** weird happened during
+- **00:23** the football game
+- **00:25–00:27** asI sat cheering on my
+- **00:25–00:27** friend and being there
+- **00:28–00:29** and getting all involved
+- **00:28–00:29** as you would in a
+- **00:30–00:31** football game, a
+- **00:30–00:31** microphone was on
+- **00:32–00:33** and as the microphone
+- **00:32–00:33** was on, you could hear
+- **00:34** sounds coming through
+- **00:35–00:36** andIthought maybe
+- **00:35–00:36** perhaps it'sjust a
+- **00:37–00:38** standard operational
+- **00:37–00:38** mistake
+- **00:39–00:40** but that's when
+- **00:39–00:40** something very weird
+- **00:41–00:42** and I'm going to be
+- **00:41–00:42** honest with you, it was
+- **00:44–00:45** a young boy started
+- **00:44–00:45** reciting Quran during
+- **00:46** the football game
+- **00:50–00:51** why recite Quran during
+- **00:50** afootball game
+- **00:51** afootballgame
+- **00:53** it makes no sense, right
+- **00:54–00:56** the most sensible thing
+- **00:54–00:56** during a football game
+- **00:57–00:58** would be to commentate
+- **00:57–00:58** on what's happening, on
+- **00:59–01:00** who's passing the ball
+- **00:59–01:00** and what kind of plays
+- **01:01** are happening
+- **01:02** i mean, that's what
+- **01:02** happens at the football
+- **01:04** games we watch on TV,
+- **01:04** right
+- **01:05–01:07** the football game took
+- **01:05–01:07** place in the UK, so why
+- **01:08–01:09** not just do what the
+- **01:08–01:09** Britsdo
+- **01:10** commentate on the
+- **01:10** football game
+- **01:12–01:13** but instead Quran was
+- **01:12–01:13** being recited and it felt
+- **01:14–01:15** very weird and
+- **01:14–01:15** uncomfortable because
+- **01:16** no one was listening to it
+- **01:17–01:19** and it kind of brings me
+- **01:17–01:19** on to this idea and point
+- **01:20–01:21** that I've spoken to my
+- **01:20–01:21** very good friends about
+- **01:23–01:24** is this idea of constantly
+- **01:23–01:24** shoehorningreligion,
+- **01:25–01:26** constantly making
+- **01:25** things areligious
+- **01:26** things a religious
+- **01:28** experience when they
+- **01:28** don't necessarily need
+- **01:29** tobe
+- **01:30–01:32** this idea that we have to
+- **01:30–01:32** recite the Qur'an,
+- **01:33–01:35** otherwise perhaps our
+- **01:33–01:35** event will be void of any
+- **01:36–01:38** meaning or reward is a
+- **01:36–01:38** kind of nonsensical one
+- **01:39–01:42** at the end of the day, we
+- **01:39–01:42** can engage with the
+- **01:43–01:44** world without having to
+- **01:43–01:44** necessarily
+- **01:46–01:47** always push religion
+- **01:48–01:49** and it was weird
+- **01:48–01:49** because it was a football
+- **01:50** game,right
+- **01:51–01:52** there's no need for the
+- **01:51–01:52** Quran to be recited
+- **01:53** during a football game
+- **01:54–01:56** in any case, it more than
+- **01:54–01:56** likely is blameworthy
+- **01:57** i think this is what
+- **01:57–01:58** happens when we
+- **01:58** ithink this is what
+- **01:59–02:00** become so hyper
+- **01:59–02:00** obsessed with
+- **02:01–02:02** everything being
+- **02:01–02:02** religious
+- **02:04–02:05** it doesn't have to be the
+- **02:04–02:05** case, like just watch the
+- **02:06** football game, enjoy it,
+- **02:06** commentate
+- **02:08–02:10** and maybe put the
+- **02:08–02:10** Quran at the end of the
+- **02:11–02:12** event where it can
+- **02:11–02:12** actually be honored
+- **02:13–02:14** it's just a strange thing

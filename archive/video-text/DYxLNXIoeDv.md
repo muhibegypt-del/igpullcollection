@@ -1,0 +1,91 @@
+# On-screen text: DYxLNXIoeDv
+
+Video: [DYxLNXIoeDv.mp4](../../DYxLNXIoeDv/DYxLNXIoeDv.mp4)
+
+OCR sampled one frame per second. Lines below 0.85 confidence were omitted from this readable view; timings are approximate. Text may be incomplete or misread.
+
+- **00:00–00:02** me and you have been
+- **00:00–00:02** completely lied to
+- **00:03–00:05** weve been told
+- **00:03–00:05** something that is totally
+- **00:07–00:08** and I realized that it was
+- **00:07–00:08** untrue at my fathers
+- **00:11–00:13** my father died suddenly
+- **00:11–00:13** eight years ago and the
+- **00:14–00:15** grief that has come from
+- **00:14–00:15** that has been the
+- **00:16–00:18** greatest educator of my
+- **00:16–00:18** entire life
+- **00:19** so Im at his
+- **00:20–00:23** funeral and were at the
+- **00:20–00:23** mosque and
+- **00:24–00:25** everyone thats coming
+- **00:24–00:25** up to me is telling me
+- **00:26–00:29** things about my father
+- **00:26–00:29** that are really beautiful
+- **00:30–00:31** theyre telling me how
+- **00:30** kind he was how nice he
+- **00:31** kind he was hownice he
+- **00:32–00:34** was how much of a great
+- **00:32–00:34** man he was to them how
+- **00:35–00:36** he helped them in their
+- **00:35–00:36** time of need and no one
+- **00:38–00:39** and this carried on
+- **00:38–00:39** throughout the entire
+- **00:40** funeral
+- **00:41–00:42** everyone just spoke
+- **00:41–00:42** about something very
+- **00:43** very specific
+- **00:44–00:47** and Ive noticed this at
+- **00:44–00:47** other funerals too
+- **00:48–00:49** that when you go there
+- **00:48–00:49** what ends up being
+- **00:51–00:53** spoken about is not the
+- **00:51–00:53** persons car not the
+- **00:54–00:55** persons house and not
+- **00:54–00:55** how much money they
+- **00:56–00:57** have in the bank
+- **00:56–00:57** account instead
+- **00:58–01:00** whats spoken about is
+- **00:58–01:00** their character how
+- **01:01–01:02** they showed up in the
+- **01:01–01:02** world who they were
+- **01:03–01:04** how they made people
+- **01:03–01:04** feel how they affected
+- **01:06** the hearts around them
+- **01:07–01:09** you see the lie that me
+- **01:07–01:09** and you have been told
+- **01:10–01:13** is that our material is
+- **01:10–01:13** only what matters that
+- **01:14–01:15** we should accumulate
+- **01:14–01:15** accrue and gather as
+- **01:16–01:17** much material as
+- **01:16–01:17** possible and thats
+- **01:18** whats going to really
+- **01:18** save us
+- **01:19–01:20** and the truth of the
+- **01:19–01:20** matter is its not
+- **01:22–01:24** at every single funeral l
+- **01:22–01:24** have ever been to the
+- **01:25–01:27** person who is laying
+- **01:25–01:27** there dead has no
+- **01:28** access to any of that
+- **01:28** material
+- **01:30–01:31** the only thing that they
+- **01:30–01:31** have access to really
+- **01:32–01:33** and truly is their
+- **01:32–01:33** character
+- **01:34–01:35** because its the only
+- **01:34–01:35** thing that really matters
+- **01:36–01:38** and seeing that at my
+- **01:36–01:38** fathers funeral at my
+- **01:39–01:40** friends funeral at
+- **01:39–01:40** various other funerals
+- **01:41–01:44** that whats spoken
+- **01:41–01:44** about isnt how much
+- **01:45–01:46** wealth they have but
+- **01:45–01:46** rather how much
+- **01:47** character
+- **01:48–01:49** im starting to think
+- **01:48–01:49** character is the true
+- **01:50** wealth here

@@ -1,0 +1,74 @@
+# Inner Life & Healing
+
+Suggested theme links from automated text classification. A post can appear in several themes.
+
+68 posts
+
+- [I need to rant.](../posts/DbeaDNQCIyN.md) — `DbeaDNQCIyN`
+- [haraam police must live a miserable life](../posts/DZxk-AiINvg.md) — `DZxk-AiINvg`
+- [When Did We Stop Knocking onDoors?](../posts/DSma8kNj4oj.md) — `DSma8kNj4oj`
+- [Everyone says the UK is broken but I think it's a little deeper than that...](../posts/DJQD-IZzoXE.md) — `DJQD-IZzoXE`
+- [The confused-Ramadan, the clumsy-Ramadan, the sad-and-lonely Ramadan, the…](../posts/DGrS3Cpoz29.md) — `DGrS3Cpoz29`
+- [The beauty of Islam lies in its celebration of a unique form of vulnerability.](../posts/DEN3TlWT3ey.md) — `DEN3TlWT3ey`
+- [Let's be honest: the modern self-help industry isn't about healing trauma—it's…](../posts/DCzCa10PNpV.md) — `DCzCa10PNpV`
+- [Focusing on mental health is important and should be widely encouraged, but we must…](../posts/DA-xaS_PPFi.md) — `DA-xaS_PPFi`
+- [I had a strange chest feeling when I learned about 'baraka'.](../posts/C-Df6vhIwSa.md) — `C-Df6vhIwSa`
+- [Silence is not just rare; it is under attack.](../posts/C2Xka5XI-FF.md) — `C2Xka5XI-FF`
+- [As the new year begins, I'm immediately confronted with the stark reality of spending…](../posts/C2LLVwoIQgr.md) — `C2LLVwoIQgr`
+- [I had a strange chest feeling when I learned about 'baraka'.](../posts/C17kJLxIYiV.md) — `C17kJLxIYiV`
+- [Less talking, more reading.](../posts/C00dUZIozGz.md) — `C00dUZIozGz`
+- [Let me ask you a question: when you witness horror, pain, anguish, and torment, what…](../posts/C0fDfM-IfhG.md) — `C0fDfM-IfhG`
+- [Dear Reem, there's no need for fear or tears now.](../posts/C0Oz4h_oij2.md) — `C0Oz4h_oij2`
+- [I am not alone in this, and I know you feel it too.](../posts/C0E7UfmokFE.md) — `C0E7UfmokFE`
+- [Here we are, at the pinnacle of so-called sophisticated and ‘superior' western…](../posts/C0DoPzAovHY.md) — `C0DoPzAovHY`
+- [Social media is antithetical to what it means to be a human being.](../posts/C0BQ5ZYoT6z.md) — `C0BQ5ZYoT6z`
+- [The video of the Palestinian father cradling his deceased daughter, gently closing her…](../posts/Cz_XTsrIDID.md) — `Cz_XTsrIDID`
+- [Loneliness can make us act in ways we don't understand.](../posts/CxTo6SorPCk.md) — `CxTo6SorPCk`
+- [A teacher once told me that if you're breaking hearts, alienating loved ones,…](../posts/Cwi_1SRIgkr.md) — `Cwi_1SRIgkr`
+- [What if you deeply love God but struggle to express it?](../posts/CwINopJI-qq.md) — `CwINopJI-qq`
+- [I said I wasn't going to write anything.](../posts/CwDv2JErADS.md) — `CwDv2JErADS`
+- [Growing your Instagram account may be cool, but I believe growing our capacity to…](../posts/Cut7rN7oQ-c.md) — `Cut7rN7oQ-c`
+- [There are many threads out there, but the most crucial thread is our delicate, fragile…](../posts/CuXiejVooZ0.md) — `CuXiejVooZ0`
+- [There is only God.](../posts/Cq62hYUoeNk.md) — `Cq62hYUoeNk`
+- [Being overly harsh with people won't help them cultivate a balanced relationship with…](../posts/Cq10MjiosF9.md) — `Cq10MjiosF9`
+- [There are people who, through their trauma and heartbreak, have discovered the…](../posts/CqPQ4R2odHk.md) — `CqPQ4R2odHk`
+- [Ramadan Anxiety is a genuine feeling that many of us experience.](../posts/CqGumm7IWko.md) — `CqGumm7IWko`
+- [The confused-Ramadan, the clumsy-Ramadan, the sad-and-lonely Ramadan, the…](../posts/CqEmRskIF2W.md) — `CqEmRskIF2W`
+- [Love is everything.](../posts/Cp5jBwkoEoI.md) — `Cp5jBwkoEoI`
+- [As I get older, I hope I can learn that people sometimes have bad days, weeks or…](../posts/Cpp8_2VoRxg.md) — `Cpp8_2VoRxg`
+- [It is almost here – that month, the month of blessings, healing, and proximity through…](../posts/Co0QDfooNLl.md) — `Co0QDfooNLl`
+- [Love is a lifeline, sacred beyond words.](../posts/CmhxySDoI-N.md) — `CmhxySDoI-N`
+- [There is a generation of adults who, when they were young, unfortunately witnessed…](../posts/CmcRXczIbvv.md) — `CmcRXczIbvv`
+- [Al art is not real.](../posts/Cjg9sY8ox9E.md) — `Cjg9sY8ox9E`
+- [Life has a very interesting way of bringing us back to reality.](../posts/Ciq1quSI73z.md) — `Ciq1quSI73z`
+- [It was four years ago this day that a nurse approached me.](../posts/ChauNRlI8Ss.md) — `ChauNRlI8Ss`
+- [Taking a break from the internet is genuine self-care.](../posts/Cg8QeWDIzFC.md) — `Cg8QeWDIzFC`
+- [I didn't get it when Arabs would say 'May they be the coolness of your eyes'.](../posts/CgNXdc5IdOe.md) — `CgNXdc5IdOe`
+- [There are people who through their trauma and heartbreak have found the fragrance of God.](../posts/CfHkyC3Idqm.md) — `CfHkyC3Idqm`
+- [Self-care is wanting for your friend what you want for yourself.](../posts/Ce1pndPoXii.md) — `Ce1pndPoXii`
+- [There is so much talk about purpose which is amazing, but I think we're forgetting…](../posts/Ce1TKJhIcSR.md) — `Ce1TKJhIcSR`
+- [I have noticed special beauty that emanates from the face of a person who is trying to…](../posts/CeqoeRRonwh.md) — `CeqoeRRonwh`
+- [It's okay to take a step back.](../posts/CepBGOYoMZn.md) — `CepBGOYoMZn`
+- [It's okay to take a step back.](../posts/CeLeSN8Iyi_.md) — `CeLeSN8Iyi_`
+- [Healing is not just reading.](../posts/CeHc4IaoaL8.md) — `CeHc4IaoaL8`
+- [It is often through the pangs of loneliness we humans make the worst mistakes.](../posts/CdgX6fkI1Cs.md) — `CdgX6fkI1Cs`
+- [I think a lot of us are carrying a large amount of grief.](../posts/CdE3_JxokTk.md) — `CdE3_JxokTk`
+- [Self-forgiveness is not spoken about enough...](../posts/CcGEc-hIlDP.md) — `CcGEc-hIlDP`
+- [Spending time alone is healing.](../posts/Cb_qTFMDH9T.md) — `Cb_qTFMDH9T`
+- [Self-care is not self-avoidance.](../posts/Cbx3WzTo6wr.md) — `Cbx3WzTo6wr`
+- [Truth is a lot of men are broken.](../posts/CbvCWM6IW3i.md) — `CbvCWM6IW3i`
+- [It's okay to take a step back.](../posts/CbqdP0ao6ZW.md) — `CbqdP0ao6ZW`
+- [Even though the world may seem as if it is truly ending.](../posts/CbfEs15ov_Y.md) — `CbfEs15ov_Y`
+- [Loneliness is an experience that touches the hearts of many.](../posts/Cbdz5GWoZIK.md) — `Cbdz5GWoZIK`
+- [Grief is an involuntary rollercoaster that stops and starts when you least expect it.](../posts/CbbEN_1IxGr.md) — `CbbEN_1IxGr`
+- [Ramadan is a personal experience for some of us.](../posts/CbXrPGGIWiS.md) — `CbXrPGGIWiS`
+- [There is power in silence.](../posts/CbXGtyeI21v.md) — `CbXGtyeI21v`
+- [The grounded man is a tree.](../posts/CbWWpHJoYn-.md) — `CbWWpHJoYn-`
+- [Desire is the at the root of most suffering.](../posts/CbLQAcloKrG.md) — `CbLQAcloKrG`
+- [For thousands of years women have been seen as healers, and as the distributors of…](../posts/Ca-ENFDICfy.md) — `Ca-ENFDICfy`
+- [There is a very simple but profound beauty in making sure that nobody eats alone.](../posts/CZAFJZ1of6Z.md) — `CZAFJZ1of6Z`
+- [Healing is not just reading.](../posts/CY9YCEUIbMr.md) — `CY9YCEUIbMr`
+- [I have noticed special beauty that emanates from the face of a person who is trying to…](../posts/CY8KnA2IHrg.md) — `CY8KnA2IHrg`
+- [An original piece by Muhib.blog 2022: Alignment.](../posts/CXb1DyQIdYx.md) — `CXb1DyQIdYx`
+- [Real self care is not self indulgence.](../posts/CV5hWgPo09U.md) — `CV5hWgPo09U`
+- [Slow down.](../posts/CVSm4VFokYG.md) — `CVSm4VFokYG`

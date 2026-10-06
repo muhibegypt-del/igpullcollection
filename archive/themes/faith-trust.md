@@ -1,0 +1,147 @@
+# Faith & Trust
+
+Suggested theme links from automated text classification. A post can appear in several themes.
+
+141 posts
+
+- [Hustling is exhausting.](../posts/DdNW9cQiCYh.md) — `DdNW9cQiCYh`
+- [don't underestimate this](../posts/DcRJupgIrmS.md) — `DcRJupgIrmS`
+- [mercy is the secret?](../posts/DbtUI1WIB3x.md) — `DbtUI1WIB3x`
+- [every ex Muslim I’ve ever met said this to me](../posts/DZvA_9DI6P3.md) — `DZvA_9DI6P3`
+- [The stranger who taught me what faith actually feels like.](../posts/DYpdlpUIBST.md) — `DYpdlpUIBST`
+- [On The Passing of Abdul Lateef Ayodele Sincerity that can not be taught.](../posts/DS9Q4Woj5NO.md) — `DS9Q4Woj5NO`
+- [the religious police broke her beads on how real authority is grounded in compassion,…](../posts/DRiLvApEzwD.md) — `DRiLvApEzwD`
+- [""I love Islam," she said quietly.](../posts/DQjDaZ1D9oQ.md) — `DQjDaZ1D9oQ`
+- [There was once a righteous man who had a deep and intimate relationship with God.](../posts/DMOIRfvz71-.md) — `DMOIRfvz71-`
+- [It might be very difficult for me and you to believe this, but everyone's working here.](../posts/DE2glowvHDc.md) — `DE2glowvHDc`
+- [Growing up means learning to let people be who they are.](../posts/DEYk718TtvQ.md) — `DEYk718TtvQ`
+- [When someone genuinely desires good for you on your spiritual journey and sincerely…](../posts/DEAno6gBrfr.md) — `DEAno6gBrfr`
+- [There is nothing greater in life than being in Love.](../posts/DDscf51TUN1.md) — `DDscf51TUN1`
+- [This world is heartbreaking.](../posts/DDc2wGNzwUE.md) — `DDc2wGNzwUE`
+- [I truly believe that if the veil were lifted and we saw the immense mercy and love God…](../posts/DDXZMPgv3Go.md) — `DDXZMPgv3Go`
+- [You know that religious guy (or lady)—the one who's always angry, using religion to…](../posts/DC83FfHTi11.md) — `DC83FfHTi11`
+- [Let's be honest: the modern self-help industry isn't about healing trauma—it's…](../posts/DCzCa10PNpV.md) — `DCzCa10PNpV`
+- [Sincerity is the key that unlocks all doors.](../posts/DCH-lTwTggP.md) — `DCH-lTwTggP`
+- [I once visited a wise old saint.](../posts/DB1kQQITPdY.md) — `DB1kQQITPdY`
+- [I've met profound human beings, but nothing compares to meeting someone striving to…](../posts/DBqCZOevhQ8.md) — `DBqCZOevhQ8`
+- [You know what cosplay is?](../posts/DBoxVKsT6KV.md) — `DBoxVKsT6KV`
+- [The crisis in Sudan deserves our attention.](../posts/DBlb0pCv78R.md) — `DBlb0pCv78R`
+- [Those who burn people alive with impunity and destroy lives without humanity in their…](../posts/DBGhnmsPBdo.md) — `DBGhnmsPBdo`
+- [Focusing on mental health is important and should be widely encouraged, but we must…](../posts/DA-xaS_PPFi.md) — `DA-xaS_PPFi`
+- [The debt we owe to the Prophet Muhammad, blessings and peace be upon him and his noble…](../posts/DA2_yEePGGp.md) — `DA2_yEePGGp`
+- [The saddest part of jealousy is that it often comes from those closest to us.](../posts/DAro65WznMF.md) — `DAro65WznMF`
+- [48 hours ago, many of us didn't know Marcellus Williams.](../posts/DAWOhnMIZv9.md) — `DAWOhnMIZv9`
+- [An incredible teacher once told me that if you hold a good opinion of God—believing He…](../posts/DAAEY33oPPD.md) — `DAAEY33oPPD`
+- [There is always room.](../posts/C_9TTMPoBH_.md) — `C_9TTMPoBH_`
+- [If we could pull back the curtain, even just a little, and glimpse the immensity of…](../posts/C_uNSS_IGgJ.md) — `C_uNSS_IGgJ`
+- [Struggling to pray?](../posts/C_lpdc6IAgF.md) — `C_lpdc6IAgF`
+- [Hustle harder, keep trying until you can't anymore —this is today's motto.](../posts/C_K9Of6IQPj.md) — `C_K9Of6IQPj`
+- [There are no human systems that can contain God.](../posts/C_G83C_oEg5.md) — `C_G83C_oEg5`
+- [I didn't want to write this, but I feel compelled to.](../posts/C_D6PLMo7-4.md) — `C_D6PLMo7-4`
+- [Honestly, it's life-changing.](../posts/C--s7RLI7Ho.md) — `C--s7RLI7Ho`
+- [A teacher once told me never to give up.](../posts/C-1bn63odxJ.md) — `C-1bn63odxJ`
+- [Over 1400 years ago The Perfect Human stood and delivered his last sermon.](../posts/C-gB8ULIVH1.md) — `C-gB8ULIVH1`
+- [A teacher once told me; I assure you, there is no beauty greater in this world than…](../posts/C-TM26CInwN.md) — `C-TM26CInwN`
+- [A century from now, historians, philosophers, and spiritual seekers will study faith.](../posts/C-LnSOqIMPa.md) — `C-LnSOqIMPa`
+- [Ten years ago, I met a ex-gangster.](../posts/C-I3IFaoU3r.md) — `C-I3IFaoU3r`
+- [I had a strange chest feeling when I learned about 'baraka'.](../posts/C-Df6vhIwSa.md) — `C-Df6vhIwSa`
+- [I think what we are all seeking can be boiled down to two things.](../posts/C7g0B23IsuM.md) — `C7g0B23IsuM`
+- [It is never too late to start a relationship with your Lord.](../posts/C6TUZ3MoCzo.md) — `C6TUZ3MoCzo`
+- [Likes, comments, and followers hold little real significance.](../posts/C3B4v_HoYii.md) — `C3B4v_HoYii`
+- [A teacher once told me; I assure you, there is no beauty greater in this world than…](../posts/C2P2YbsIPjh.md) — `C2P2YbsIPjh`
+- [Humans are spiritual and physical.](../posts/C19hXLRI-D4.md) — `C19hXLRI-D4`
+- [I had a strange chest feeling when I learned about 'baraka'.](../posts/C17kJLxIYiV.md) — `C17kJLxIYiV`
+- [There are people who I call 'the tryers.' They strive to pray, learn about God, spread…](../posts/C1qaZIQIVWX.md) — `C1qaZIQIVWX`
+- [Atrocities have occurred throughout human history; however, this is unprecedented.](../posts/C0sleD3oQLE.md) — `C0sleD3oQLE`
+- [We are at a loss for words, witnessing the annihilation of an entire people, a…](../posts/C0av7xEoQWS.md) — `C0av7xEoQWS`
+- [Dear Reem, there's no need for fear or tears now.](../posts/C0Oz4h_oij2.md) — `C0Oz4h_oij2`
+- [I am not alone in this, and I know you feel it too.](../posts/C0E7UfmokFE.md) — `C0E7UfmokFE`
+- [They want to shadowban us.](../posts/C0CZcvFIu63.md) — `C0CZcvFIu63`
+- [The last few hours have been confusing.](../posts/CyhOoNgIeTq.md) — `CyhOoNgIeTq`
+- [Your heart may be breaking, or perhaps it's already broken.](../posts/CydxXRZIcCe.md) — `CydxXRZIcCe`
+- [You'd be surprised by the number of Muslims I meet that are weary of the constant…](../posts/Cx5tAJFo1Lg.md) — `Cx5tAJFo1Lg`
+- [The biggest lie we're told is that we're not good enough for a relationship with God.](../posts/Cx4aumuIuTD.md) — `Cx4aumuIuTD`
+- [I sneezed and suddenly, summer was gone.](../posts/Cw5a7ZXolyR.md) — `Cw5a7ZXolyR`
+- [You cannot gatekeep God & you cannot gatekeep His mercy.](../posts/Cw2ztnjreDq.md) — `Cw2ztnjreDq`
+- [I'm starting to think less screen time might actually be a blessing.](../posts/Cwx14EVrHnp.md) — `Cwx14EVrHnp`
+- [The human journey is essentially a pilgrimage from darkness into light, an unceasing…](../posts/CwsEebxogvH.md) — `CwsEebxogvH`
+- [In Islamic tradition, there's this incredibly nuanced term—'Baraka.'While often…](../posts/CwpxCq5osDY.md) — `CwpxCq5osDY`
+- [I've said it countless times.](../posts/CwncmLeIGY5.md) — `CwncmLeIGY5`
+- [What if you deeply love God but struggle to express it?](../posts/CwINopJI-qq.md) — `CwINopJI-qq`
+- [The boy gazed at the night sky.](../posts/CwBcHHNIQ5E.md) — `CwBcHHNIQ5E`
+- [Perhaps you question the love around you because you struggle to channel love towards…](../posts/CvsGB7io-Ja.md) — `CvsGB7io-Ja`
+- [You are deserving of God's love.](../posts/CvEDrmDoNfL.md) — `CvEDrmDoNfL`
+- [The truth is, we're all just a bunch of 'tryers'.](../posts/CuITgOhr9w1.md) — `CuITgOhr9w1`
+- [The biggest lie we're told is that we're not good enough for a relationship with God.](../posts/Cth6_Yqo3Bq.md) — `Cth6_Yqo3Bq`
+- [I did not grow up in a religious family.](../posts/CtMasD5oElr.md) — `CtMasD5oElr`
+- [There are no masks with God.](../posts/CrwWoZyIt0B.md) — `CrwWoZyIt0B`
+- [What if the delays you're facing are, in fact, God loving you?](../posts/CrmiwqbovKm.md) — `CrmiwqbovKm`
+- [In the Islamic Tradition human beings have a God-given honor.](../posts/CrjFqGpIwAM.md) — `CrjFqGpIwAM`
+- [Ramadan has ended, but God's love remains steadfast.](../posts/CrRYMEVoT7F.md) — `CrRYMEVoT7F`
+- [Imagine, just for a moment, having complete faith that everything is going to work out.](../posts/CrJsqC0osAu.md) — `CrJsqC0osAu`
+- [I've met people who dedicate everything to God.](../posts/CrIRJMPIKJW.md) — `CrIRJMPIKJW`
+- [As I grow older I'm starting to realize that it is actually small & consistent actions…](../posts/CrH7FGHIL1D.md) — `CrH7FGHIL1D`
+- [May God grant us a forgiveness that is complete and whole, transcending the confines…](../posts/Cq_W9bUI2n1.md) — `Cq_W9bUI2n1`
+- [Feeling so many different emotions right now at the fact that it's almost over.](../posts/Cq9egyeIeWR.md) — `Cq9egyeIeWR`
+- [There is only God.](../posts/Cq62hYUoeNk.md) — `Cq62hYUoeNk`
+- [Perhaps you have been fumbling around, trying to make the most of this blessed month.](../posts/CqxABKVIf4x.md) — `CqxABKVIf4x`
+- [I yearn for us to truly grasp the depth of God's love.](../posts/CqreR9nIICE.md) — `CqreR9nIICE`
+- [The committed-Ramadan, the commitment-issues Ramadan, the l-need-to-read-more Ramadan,…](../posts/CqmEmbGoNXy.md) — `CqmEmbGoNXy`
+- [This is a message for all those currently struggling with their day-to-day during this…](../posts/CqeKpfGIdr3.md) — `CqeKpfGIdr3`
+- [We all long to return home, but where exactly is home?](../posts/CqTdyJvoRb3.md) — `CqTdyJvoRb3`
+- [God sees you trying.](../posts/CqLTJ2aoryD.md) — `CqLTJ2aoryD`
+- [The most extraordinary individuals I've encountered are not only in love with God, but…](../posts/CqJC6WHrZ-9.md) — `CqJC6WHrZ-9`
+- [Ramadan Anxiety is a genuine feeling that many of us experience.](../posts/CqGumm7IWko.md) — `CqGumm7IWko`
+- [With Ramadan getting closer I reflect on how I have not spent time sowing the seeds…](../posts/CpqOJSdLyC5.md) — `CpqOJSdLyC5`
+- [I have met people.](../posts/CpQaCAUoHJ7.md) — `CpQaCAUoHJ7`
+- [There are times where God wants you all to Himself.](../posts/CpAhdKfIUPY.md) — `CpAhdKfIUPY`
+- [It is almost here – that month, the month of blessings, healing, and proximity through…](../posts/Co0QDfooNLl.md) — `Co0QDfooNLl`
+- [I remember traveling to Morocco and meeting a group of saintly old men.](../posts/CmpDywLILTT.md) — `CmpDywLILTT`
+- [There will be people in our lives that only stay for a short time but they carry…](../posts/CmXC74fom9-.md) — `CmXC74fom9-`
+- [A few years ago, I visited a wise old man.](../posts/CmPV_krIUKZ.md) — `CmPV_krIUKZ`
+- [I remember seeing a distressed elderly lady in Morocco.](../posts/CmKFe-PIdQa.md) — `CmKFe-PIdQa`
+- [The most heaviest form of baggage is spiritual baggage.](../posts/Cljs1a_IWEk.md) — `Cljs1a_IWEk`
+- [There are people in this world who walk the lonely path toward God.](../posts/ClHJVnloWda.md) — `ClHJVnloWda`
+- [The struggle as a Muslim to pray consistently is valid, and in truth, is a lifelong…](../posts/CkyXtBjo4Ad.md) — `CkyXtBjo4Ad`
+- [There are times where God wants you all to Himself.](../posts/CkrXx8TISk_.md) — `CkrXx8TISk_`
+- [There is a growing group of people who, regardless of the pressures surrounding them,…](../posts/Cj_0nUEoX4v.md) — `Cj_0nUEoX4v`
+- [More compassionate.](../posts/Cj5WJy5IFKw.md) — `Cj5WJy5IFKw`
+- [I don't know about you but this constant pressure to impress is boring.](../posts/Cj1HHaAIvjV.md) — `Cj1HHaAIvjV`
+- [If humans needed God 5000 years ago then we surely need Him more than ever today.](../posts/CjEtTZYog0C.md) — `CjEtTZYog0C`
+- [Contrary to the modern world and its attempt to erase neediness from the condition of…](../posts/CivMbq1oYBM.md) — `CivMbq1oYBM`
+- [There's no pretending with God.](../posts/CiBokvvI6SD.md) — `CiBokvvI6SD`
+- [There are times where God wants you all to Himself.](../posts/Ch5g1ppIC07.md) — `Ch5g1ppIC07`
+- [Over the years I've been fortunate enough to spend time with people of wisdom, love…](../posts/CfuAaERo7AE.md) — `CfuAaERo7AE`
+- [Of all that is profound to learn, after learning about God, is the knowledge of how to…](../posts/CfHLCi-o5A-.md) — `CfHLCi-o5A-`
+- [Good conversation is a gift.](../posts/Ce6srfLItM8.md) — `Ce6srfLItM8`
+- [Religious policing has been the primary reason in my experience as to why so many…](../posts/CezT4O-IaCj.md) — `CezT4O-IaCj`
+- [Society honestly underestimates the power and beauty of sincerity.](../posts/CerEoaWoCKS.md) — `CerEoaWoCKS`
+- [Shaming the desire for freedom is like shaming your capacity to breath.](../posts/Cel_YDoIcNM.md) — `Cel_YDoIcNM`
+- [Every now and again you and I will fail.](../posts/CejDHeSIITo.md) — `CejDHeSIITo`
+- [In the ancient world it was simple: Set your intentions from the deepest place within…](../posts/CeMl9JEImxo.md) — `CeMl9JEImxo`
+- [The space the human has to fall and err is eclipsed by the immense space of God's mercy.](../posts/CdyXAj0ofEW.md) — `CdyXAj0ofEW`
+- [There's no pretending with God.](../posts/CdI-2AmIgfO.md) — `CdI-2AmIgfO`
+- [Here we are.](../posts/Cc_GOGcoEzQ.md) — `Cc_GOGcoEzQ`
+- [I’ve met people who surf through life and all of its difficult waves.](../posts/CcroAJkIl61.md) — `CcroAJkIl61`
+- [Pornography tells a warped and wicked story.](../posts/CcnxDJAIybn.md) — `CcnxDJAIybn`
+- [Society honestly underestimates the power and beauty of sincerity.](../posts/Ccei5hRIGDm.md) — `Ccei5hRIGDm`
+- [Spiritual Imposter Syndrome is uncommon and often times undetected.](../posts/CcPGMhfIhP5.md) — `CcPGMhfIhP5`
+- [A few years ago I told a wise spiritual man that the door to God's vast and beautiful…](../posts/CcKUq5Ioa7G.md) — `CcKUq5Ioa7G`
+- [To trust entirely, to trust to such a degree that not a shred of doubt exists.](../posts/CcEYgIuoc-L.md) — `CcEYgIuoc-L`
+- [This is a message to all those currently struggling with their day to day during this…](../posts/CcCMED8IERP.md) — `CcCMED8IERP`
+- [May God make it easier for us to witness His immense Love for us all.](../posts/CcBYdfHIMhL.md) — `CcBYdfHIMhL`
+- [We are craving stillness of heart.](../posts/CbQREGeIw3W.md) — `CbQREGeIw3W`
+- [One day all of your pain will make sense.](../posts/CbIGJ_poeIE.md) — `CbIGJ_poeIE`
+- [There are times where God wants you all to Himself.](../posts/CbC_IURDmTV.md) — `CbC_IURDmTV`
+- [The human heart is under attack from almost every conceivable angle.](../posts/CbA3SIhoU5j.md) — `CbA3SIhoU5j`
+- [There's a difference in God's approval and human approval.](../posts/CZx-oJEI4Ow.md) — `CZx-oJEI4Ow`
+- [I saw a retired gangster once.](../posts/CZufa-MIfr-.md) — `CZufa-MIfr-`
+- [There is an agenda to make us more narcissistic.](../posts/CZOG7UWBVaW.md) — `CZOG7UWBVaW`
+- [On some days you may feel like a failure.](../posts/CZNB8NehiRJ.md) — `CZNB8NehiRJ`
+- [You cannot plant a seed, water it, and then dig it back up again to witness its growth.](../posts/CZMlMvhB5I7.md) — `CZMlMvhB5I7`
+- [In the ancient world it was simple: Set your intentions from the deepest place within…](../posts/CZIAndtouE5.md) — `CZIAndtouE5`
+- [The truth -and sometimes it makes me chuckle.](../posts/CY8-NDPI1PU.md) — `CY8-NDPI1PU`
+- [An original piece by Muhib.blog Exhibiting the Actual: Why More Men Are Now Choosing…](../posts/CW6cxUpI_Xc.md) — `CW6cxUpI_Xc`
+- [An original piece by Muhib.blog ‘Simple, Single, but not Separate: Why More People Are…](../posts/CWtm5g9oX-n.md) — `CWtm5g9oX-n`
+- [There is a quiet beauty in the person who yearns for God quietly in the privacy of…](../posts/CV5e0XRIxDy.md) — `CV5e0XRIxDy`
+- [In 2021 we tried to trust the process.](../posts/CV0yQGFISsb.md) — `CV0yQGFISsb`
