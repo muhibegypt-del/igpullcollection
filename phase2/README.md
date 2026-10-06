@@ -37,8 +37,8 @@ Several later posts appear to be screenshots or teasers for full Substack essays
 
 ## Interior study
 
-[book-preview.tex](book-preview.tex) is a standalone, book-size LaTeX sample section called **A Handful of Days**. It mixes thirteen selected pieces without claiming to be the final title or reading order. [PREVIEW_NOTES.md](PREVIEW_NOTES.md) maps each piece back to the original and records the light copyedits. The source images for all thirteen pieces, including the full Morocco carousel, were checked during preparation.
+[book-preview.tex](book-preview.tex) is a standalone, book-size LaTeX sample section called **The Door Was Open**. It sequences seven selected pieces around welcome and mercy while leaving each piece self-contained. This is a sample of editorial proximity, not a rule that the whole collection must follow one argument. [PREVIEW_NOTES.md](PREVIEW_NOTES.md) maps each piece back to its original and records the light copyedits. The source images for all seven pieces were checked during preparation.
 
-[book-preview-visual.pdf](book-preview-visual.pdf) is a six-page visual companion made from the same editorial text at the intended trim size. It is **not** a LaTeX compile and may differ slightly in line and page breaks. The app's LaTeX compiler failed to initialize with a platform-directory error, before reading this source; compile the `.tex` file in a working LaTeX environment before treating its layout as verified.
+[book-preview-visual.pdf](book-preview-visual.pdf) is a visual companion made from the same editorial text at the intended trim size. It is **not** a LaTeX compile and may differ slightly in line and page breaks. The app's LaTeX compiler failed to initialize with a platform-directory error, before reading this source; compile the `.tex` file in a working LaTeX environment before treating its layout as verified.
 
 The next editorial pass is to read the 88 core pieces together, remove repetition that only becomes visible in sequence, decide which reserves add something distinct, recover any full essays, and then settle the length and order. You should choose what feels unmistakably yours before a final book edit.

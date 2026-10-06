@@ -30,12 +30,13 @@ title = ParagraphStyle("title", parent=body, fontName="Georgia-Bold", fontSize=2
 
 def clean(text):
     text = re.sub(r"(?m)^%.*\n?", "", text).strip()
+    text = re.sub(r"\\Needspace\{[^}]+\}\s*", "", text)
     text = text.replace("---", "—").replace("``", "“").replace("''", "”")
     text = text.replace("`baraka'", "‘baraka’")
     return html.escape(text)
 
 story = [Spacer(1, 28), Paragraph("A SELECTION OF SHORT PIECES", kicker),
-         Spacer(1, 15), Paragraph("A Handful of Days", title),
+         Spacer(1, 15), Paragraph("The Door Was Open", title),
          Paragraph("________________", kicker), Spacer(1, 13)]
 pieces = re.split(r"(?m)^\\piecehead\{([^}]+)\}\s*\n", source)[1:]
 for name, raw in zip(pieces[::2], pieces[1::2]):
@@ -43,7 +44,11 @@ for name, raw in zip(pieces[::2], pieces[1::2]):
     paragraphs = [p for p in paragraphs if not p.startswith("\\end{document}")]
     first = Paragraph(clean(paragraphs[0]), body)
     story.append(KeepTogether([Paragraph(html.escape(name), head), first]))
-    story.extend(Paragraph(clean(p), body) for p in paragraphs[1:])
+    if name == "Bread in the Mountains":
+        story.extend(Paragraph(clean(p), body) for p in paragraphs[1:3])
+        story.append(KeepTogether([Paragraph(clean(p), body) for p in paragraphs[3:]]))
+    else:
+        story.extend(Paragraph(clean(p), body) for p in paragraphs[1:])
 
 def furniture(canvas, doc):
     canvas.saveState()
@@ -51,7 +56,7 @@ def furniture(canvas, doc):
     canvas.setFont("Georgia", 8)
     canvas.setFillColor(colors.HexColor("#666666"))
     if page % 2:
-        canvas.drawRightString(5.5 * 72 - 0.68 * 72, 8.5 * 72 - 44, "A HANDFUL OF DAYS")
+        canvas.drawRightString(5.5 * 72 - 0.68 * 72, 8.5 * 72 - 44, "THE DOOR WAS OPEN")
         canvas.drawRightString(5.5 * 72 - 0.68 * 72, 38, str(page))
     else:
         canvas.drawString(0.82 * 72, 8.5 * 72 - 44, "MUHIB")
